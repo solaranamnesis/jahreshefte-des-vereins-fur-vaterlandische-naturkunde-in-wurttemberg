@@ -2,4 +2,4 @@
 
 ## Volume 38
 
-### Bericht über zwei Gallertmeteoritenfälle von Dr. Otto Hahn in Reutlingen
+### 3. Bericht über zwei Gallertmeteoritenfälle von Dr. Otto Hahn in Reutlingen
