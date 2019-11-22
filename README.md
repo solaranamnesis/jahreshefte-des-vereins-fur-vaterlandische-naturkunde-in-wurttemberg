@@ -5,4 +5,4 @@ Public domain works from The Annual Bulletin of the Association for National Nat
 
 ### Volume 38
 
-#### Bericht über zwei Gallertmeteoritenfälle von Dr. Otto Hahn in Reutlingen
+#### 3. Bericht über zwei Gallertmeteoritenfälle von Dr. Otto Hahn in Reutlingen
