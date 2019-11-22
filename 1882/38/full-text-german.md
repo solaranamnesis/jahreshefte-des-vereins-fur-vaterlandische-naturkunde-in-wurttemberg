@@ -33,3 +33,41 @@ Ich drehte mich rasch um und suchte den offenbar gefallenen Gegenstand. Da ich a
 In aller Frühe des andern Tages begab ich mich auf den Platz und fand wirklich nur 1 m von der durch den Stock bezeichneten Stelle eine gallertartige Kugel, bestehend wieder aus Kugeln von Rostfarbe. Sie lag auf dem dünnen Grase; unten hatte sich eine Fläche plattgedrückt.
 
 Der Durchmesser der Kugel war 30 cm.
+
+Ich stiess die Kugel mit dem Fusse an, sie kam in zitternde Bewegung, welche sich längere Zeit fortsetzte, bis die Masse nach immer schwächeren Schwingungen zum Ruhepunkt zurückkehrte. Nun berührte ich sie, sie war klebrig, es blieb aber von der Substanz nichts an den Fingern hängen, auch veränderte sich weder vom Stoss des Fusses noch von der Berührung des Fingers ihre Form.
+
+Nun komme ich an die nähere Beschreibung der Kugel. Sie bestand aus rostfarbenen runden Körpern, welche an einander lagen, ohne dass ich ganz scharfe Grenzlinien wahrgenommen hätte.
+
+Eine dieser Kugeln war 4 cm gross, die meisten kleiner bis zu 2 cm.* Im Innern der Kugeln bemerkte ich fadenförmige Linien von dunkler, sogar von schwarzer Farbe; die Zwischenräume zwischen den Kugeln (denn diese legten sich nicht unmittelbar an einander) waren von dunkler Masse ausgefüllt und hatten ebenfalls eine Art Struktur, wie ich sie an den Kugeln deutlich beobachtete. Das Ganze hatte ungefähr das Aussehen eines dunkelgelben Froschlaich-Klumpens, mit Fäden durchzogen, wodurch sie sich eben, sowie durch die verschiedene Grösse der Kugeln ganz unzweifelhaft von Froschlaich unterschied. Die Oberfläche war schwach durchsichtig, so dass ich die Form der Kugeln als runde und birnförmige Körper erkennen konnte.
+
+Ich wusste nichts mit dem Ding zu thun. Der Klumpen erregte Eckel in mir. Ich liess ihn liegen. Aber ich hatte keinen andern Glauben, als dass er ein Meteor sei. Ich habe nämlich nichts der Art je auf der Erde, ebenso nichts vor- und nachher auf der Wiese gesehen. Auch meine Geschwister, welche sie sahen, erinnerten sich nie, solche Gebilde dort gesehen zu haben.
+
+Nach einigen Tagen war nichts mehr davon zu sehen.
+
+Einen Eindruck im Boden hinterliess sie nicht. Ich habe die Kugel nicht umgekehrt, sie blieb also auf der Erde liegen, wo sie nach und nach eingetrocknet sein muss.
+
+Zum Schlusse bemerke ich, dass ich, weil ich bloss von Meteorsteinen wusste, am Morgen den Platz auf ziemlich weitem Umkreis auch nach einem Stein absuchte, aber keinen, auch kein Loch fand, wesshalb ich sicher war, dass nichts anderes als der Klumpen der am Abend vorher gefallene Gegenstand war.
+
+Während des Falls beobachtete ich weder einen Knall oder Knattern, noch eine den Fall begleitende Lichterscheinung, welche sich, wenigstens wenn sie stark gewesen, mir doch von hinten her durch den Wiederschein hätte bemerkbar machen müssen.
+
+*) Diese Thatsache, wie sie auch im zweiten Fall beobachtet wurde, schliesst jede Verwechslung mit Froschlaich aus.
+
+Die Fallrichtung ging über den Wald her von Osten nach Westen, was ich sogleich, wie nachher noch in dem Echo des Waldes erkennen konnte.
+
+Ausser meiner Familie machte ich keine Mittheilung. Meine Eltern und Brüder sind gestorben.
+
+Dies die Erzählung des Hergangs Seitens der Herrn Müller, welcher diese Angaben mit seinem Ehrenwort bekräftigt.
+
+Wahrscheinlich in derselben Nacht war es, dass eine Kameradschaft Bauernburschen in Neuhausen, O. A. Urach, mit einem Kübel Wein auf ein nahes Baumgut sich begaben, um denselben dort zu trinken. Unter ihnen war der jetzt als Kaufmann in Linsenhofen, O. A. Nürtingen, ansässige Kaufmann Gottfried Seiz, mein Gewährsmann, damals 20 Jahre alt. — Ich bemerke, dass den ledigen Bauernjungen der Wirthshausbesuch untersagt war, dass sie sich also auf solche Art hiefür schadlos hielten. Einer um den andern musste den Abend mit der Weinlieferung aushalten. G. Seiz versichert, dass der Antheil eines Jeden nicht zu gross gewesen, und dass es stets ohne Betrunkene abgegangen sei, und an jenem Abend auch alle nüchtern gewesen seien.
+
+So sass, bei schon eingetretener Dunkelheit, die Kameradschaft unter einem grossen Birnbaum und hatte noch Zeit genug übrig, das prachtvolle Schauspiel des ausserordentlichen Sternschnuppenfalls zu beobachten. Plötzlich zog ein leuchtender Gegenstand über den Berg von Osten (von Neuffen her), senkte sich herab und fiel in die Krone des Birnbaumes, unter dem die Leute sassen, um dort in hunderte von leuchtenden Funken auseinander zu stieben. Unmittelbar nach dem Aufprallen im Gipfel hörte man Körper durch die Zweige und Blätter fallen, einer fiel in den Kübel. Der Kübel war fast leer: er wurde vollends geleert und nun fand sich auf dem Boden ein aus grünlichen schleimigen Kugeln bestehender Klumpen, welchen Seiz herausnahm und näher betrachtete.
+
+Eine Kugel hatte Haselnussgrösse, die anderen waren kleiner bis zur Stecknadelkopfgrösse. Die Kugeln selbst waren von Linien oder Fäden durchzogen, was Seiz ganz genau beobachtete. Die Masse wurde nicht aufbewahrt und ging so verloren.
+
+Aus diesen Beschreibungen ist die vollständige Uebereinstimmung mit den von Boguslawski berichteten Fällen zu entnehmen, wie denn auch beide von mir berichtete Fälle unter sich (bis auf die Farbe und die Lichterscheinung, welche aber, wenn sie eine schwache war, dem Beobachter doch entgehen, um so leichter entgehen konnte, als die vielen Fälle schon Licht verbreiteten) übereinstimmen.
+
+Ich möchte an diese Mittheilung die Bitte knüpfen, auf diesen Spuren weiter zu forschen und in vorkommenden Fällen für sorgsamste Erhaltung der Massen zu sorgen. Alle Berichte sprechen dafür, dass dieselben sehr schnell vertrocknen oder gar verdunsten. Es müsste also, soll die Masse erhalten bleiben, hiegegen durch luftdichten Verschluss Vorsorge getroffen werden.
+
+Vielleicht gelingt es auch unsern Mitgliedern, durch Nachfrage weitere Fälle zu erheben. Ich wäre für Mittheilungen darüber sehr verbunden.
+
+Ausgeschlossen müssten natürlich solche sein, wo das Fallen der Massen selbst nicht festgestellt werden könnte. Soviel ist sicher: die Wissenschaft ist aufgefordert, diese Anfänge zu verfolgen und bei der nächsten besten Gelegenheit diese im höchsten Grade wichtige Frage durch genaue Feststellung der Thatsachen und Untersuchung des Gegenstands zur Entscheidung zu bringen.
