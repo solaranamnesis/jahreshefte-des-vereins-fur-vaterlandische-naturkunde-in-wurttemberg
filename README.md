@@ -2,6 +2,12 @@
 
 Public domain works from The Annual Bulletin of the Association for National Natural History in Württemberg
 
+## 1877
+
+### Volume 33
+
+#### 4. Rechtsanwalt O. Hahn in Reutlingen sprach über die Anwendung des Gesetzes des mechanischen Aequivalents der Wärme auf die Nationalöconomie
+
 ## 1878
 
 ### Volume 34
