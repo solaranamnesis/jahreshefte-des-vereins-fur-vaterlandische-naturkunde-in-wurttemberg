@@ -40,5 +40,5 @@ Public domain works from The Annual Bulletin of the Association for National Nat
 
 [German Plain Text](1882/38/full-text-german.md)  
 German - PDF  
-[English Plain Text](1882/38/full-text-english.md)  
+English Plain Text  
 English - PDF  
