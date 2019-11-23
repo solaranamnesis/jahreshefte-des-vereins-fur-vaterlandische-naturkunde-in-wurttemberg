@@ -38,7 +38,7 @@ Public domain works from The Annual Bulletin of the Association for National Nat
 
 #### 3. Bericht über zwei Gallertmeteoritenfälle von Dr. Otto Hahn in Reutlingen
 
-[German Plain Text](1882/38/full-text-german.md)  
+[German Plain Text](1882/38/full-text-german.md#3-bericht-über-zwei-gallertmeteoritenfälle-von-dr-otto-hahn-in-reutlingen)  
 German - PDF  
 English Plain Text  
 English - PDF  
