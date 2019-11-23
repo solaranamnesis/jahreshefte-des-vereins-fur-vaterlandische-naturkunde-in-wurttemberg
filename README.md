@@ -32,6 +32,11 @@ Public domain works from The Annual Bulletin of the Association for National Nat
 
 #### 5. Rechtsanwalt Dr. Otto Hahn in Reutlingen sprach über das Eophyllum canadense aus dem Serpentinkalk des Laurentian-Gneisses von Canada
 
+[German Plain Text](1880/36/full-text-german.md)  
+German - PDF  
+English Plain Text  
+English - PDF  
+
 ## 1882
 
 ### Volume 38
