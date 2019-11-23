@@ -2,6 +2,18 @@
 
 Public domain works from The Annual Bulletin of the Association for National Natural History in Württemberg
 
+## 1874
+
+### Volume 30
+
+#### II. 3. Rechtsanwalt Hahn aus Reutlingen sprach über die Anwendung des Mikroskops in der Geologie
+
+## 1876
+
+### Volume 32
+
+#### Giebt es ein Eozoon canadense? Eine mikrogeologische Untersuchung von Otto Hahn in Reutlingen
+
 ## 1877
 
 ### Volume 33
