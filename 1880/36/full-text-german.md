@@ -8,9 +8,11 @@ Da wo der Anorthit den Hauptbestandtheil des Gesteins ausmacht, ist der Laurenti
 
 Ich brauche hier nicht an den langgeführten Streit um die organische Natur des Eozoon-Gesteins zu erinnern. Es ist derselbe in unsern Jahresheften schon erörtert worden. Das Ende desselben war der Nachweis, dass das Eozoon (das Morgenröthe-Thier) nicht existire, dass es ein solches Thier nicht gäbe.
 
-Bekanntlich wurde die Annahme dieses Thiers als solches auf die Aehnlichkeit mit den Nummuliten gestützt. Da sollte eine Kammer gewesen sein, welche den Sarcodeleib eingeschlossen — da eine dünne Schale, welche diesen Leib umschlossen — da eine Art Stockwerke über einander und der Zwischenraum von Kalkmasse ausgefüllt, welche zusammen eine Form, wie etwa Polytreyna minaceum dargestellt hätten. Um das Bild zu vollenden, suchte man „Canal-Systeme“, microscopische Einlagerungen in der kalkigen Zwischenmasse (Intermediate Skeletou) für Kanalsysteme der Nummuliten zu erklären.
+Bekanntlich wurde die Annahme dieses Thiers als solches auf die Aehnlichkeit mit den Nummuliten gestützt. Da sollte eine Kammer gewesen sein, welche den Sarcodeleib eingeschlossen — da eine dünne Schale, welche diesen Leib umschlossen — da eine Art Stockwerke über einander und der Zwischenraum von Kalkmasse ausgefüllt, welche zusammen eine Form, wie etwa _Polytrema minaceum_ dargestellt hätten. Um das Bild zu vollenden, suchte man „Canal-Systeme“, microscopische Einlagerungen in der kalkigen Zwischenmasse (Intermediate Skeleton) für Kanalsysteme der Nummuliten zu erklären.
 
-Ich habe nachgewiesen, dass die sogenannte Kammer nicht ein Hohlraum gewesen sein könnte, dass die Schale meist fehle, und das was man ebenfalls für Schale ausgab, Chrysotyi-Adern seien, dass endlich die Canalsysteme auch für sich vorkommen. Damit war sowohl der organische Ursprung der einzelnen Theile geleugnet, wie der Zusammenhang der einzelnen angeblichen Merkmale zerschnitten.
+Ich habe nachgewiesen, dass die sogenannte Kammer nicht ein Hohlraum gewesen sein könnte, dass die Schale meist fehle, und das was man ebenfalls für Schale ausgab, Chrysotyl-Adern seien, dass endlich die Canalsysteme auch für sich vorkommen.
+
+Damit war sowohl der organische Ursprung der einzelnen Theile geleugnet, wie der Zusammenhang der einzelnen angeblichen Merkmale zerschnitten.
 
 Allein merkwürdig blieb das Gestein immer. In der That es gibt kein Gestein auf der Welt, welches diese Regelmässigkeit der Anordnung, diese scharfe Scheidung zweier Mineralien in solch' regelmässig wiederkehrender Form zeigt, wie das Eozoongestein Canadas. Ich habe Sammlungen, grosse Sammlungen durchstöbert, weder Berlin, noch London, noch Paris haben etwas Aehnliches aufzuweisen. — Am auffälligsten darin aber waren die sog. Canalsysteme.
 
@@ -28,7 +30,9 @@ Die Abbildungen der Carpenter'schen Präparate veranlassten mich, mein Gestein m
 
 Ich theilte meine Entdeckung Botanikern vom Fach mit, welche sich nach genauer Untersuchung dahin aussprachen, dass das Gefundene zweifellos eine Pflanze sei — und zwar eine Alge.
 
-Ich lege Ihnen das Präparat vor. Die Vergrößerung ist 90. Die Alge kann nicht einmal zu den nieder organisirten gezählt werden.
+Ich lege Ihnen das Präparat vor. Die Vergrösserung ist 90.
+
+Die Alge kann nicht einmal zu den nieder organisirten gezählt werden.
 
 Ich habe sie _Eophyllum canadense_, das Gestein nun _Eophyllum-Kalk_ genannt.
 
