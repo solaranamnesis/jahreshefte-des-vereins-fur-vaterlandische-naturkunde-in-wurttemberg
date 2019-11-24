@@ -10,7 +10,7 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 ### Volume 32 (1876)
 
-#### Giebt es ein Eozoon canadense? Eine mikrogeologische Untersuchung von Otto Hahn in Reutlingen
+#### Giebt es ein _Eozoon canadense_? Eine mikrogeologische Untersuchung von Otto Hahn in Reutlingen
 
 ### Volume 33 (1877)
 
@@ -18,7 +18,7 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 ### Volume 34 (1878)
 
-#### Gibt es ein Eozoon canadense? Erwiderung auf Dr. C. W. Gümbels und Dr. Carpenters Entgegnung von Otto Hahn in Reutlingen
+#### Gibt es ein _Eozoon canadense_? Erwiderung auf Dr. C. W. Gümbels und Dr. Carpenters Entgegnung von Otto Hahn in Reutlingen
 
 ### Volume 36 (1880)
 
