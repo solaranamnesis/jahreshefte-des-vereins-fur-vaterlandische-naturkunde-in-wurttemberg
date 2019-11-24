@@ -1,4 +1,4 @@
-## 5. Rechtsanwalt Dr. Otto Hahn in Reutlingen sprach über das Eophyllum canadense aus dem Serpentinkalk des Laurentian-Gneisses von Canada
+## 5. Rechtsanwalt Dr. Otto Hahn in Reutlingen sprach über das _Eophyllum canadense_ aus dem Serpentinkalk des Laurentian-Gneisses von Canada
 
 Es ist das Verdienst Sir William Logan's in Montreal, des verstorbenen Vorstands der geologischen Staats-Anstalt Canadas, die Laurentian-Formation festgestellt zu haben.
 
