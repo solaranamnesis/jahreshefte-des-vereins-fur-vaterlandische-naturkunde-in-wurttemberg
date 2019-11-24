@@ -18,6 +18,11 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 #### Gibt es ein _Eozoon canadense_? Erwiderung auf Dr. C. W. Gümbels und Dr. Carpenters Entgegnung von Otto Hahn in Reutlingen (Hiezu Taf. II.)
 
+[German Plain Text](34/full-text-german.md)  
+German - PDF  
+English Plain Text  
+English - PDF  
+
 ### Volume 36 (1880)
 
 #### 5. Attorney Dr. Otto Hahn in Reutlingen Speaks about the _Eophyllum canadense_ from the Serpentine Limestone of the Laurentian Gneises of Canada
