@@ -16,7 +16,7 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 ### Volume 34 (1878)
 
-#### Gibt es ein _Eozoon canadense_? Erwiderung auf Dr. C. W. Gümbels und Dr. Carpenters Entgegnung von Otto Hahn in Reutlingen
+#### Gibt es ein _Eozoon canadense_? Erwiderung auf Dr. C. W. Gümbels und Dr. Carpenters Entgegnung von Otto Hahn in Reutlingen (Hiezu Taf. II.)
 
 ### Volume 36 (1880)
 
