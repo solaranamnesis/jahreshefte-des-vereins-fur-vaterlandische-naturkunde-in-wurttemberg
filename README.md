@@ -1,6 +1,4 @@
-# Jahreshefte des Vereins für vaterländische Naturkunde in Württemberg
-
-# Annual Bulletin of the Association for National Natural History in Württemberg
+# Jahreshefte des Vereins für vaterländische Naturkunde in Württemberg (Annual Bulletin of the Association for National Natural History in Württemberg)
 
 Public domain works from the Annual Bulletin of the Association for National Natural History in Württemberg
 
