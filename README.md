@@ -14,6 +14,11 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 #### 4. Rechtsanwalt O. Hahn in Reutlingen sprach über die Anwendung des Gesetzes des mechanischen Aequivalents der Wärme auf die Nationalöconomie
 
+[German Plain Text](33/full-text-german.md#4-rechtsanwalt-o-hahn-in-reutlingen-sprach-über-die-anwendung-des-gesetzes-des-mechanischen-aequivalents-der-wärme-auf-die-nationalöconomie)  
+German - PDF  
+English Plain Text  
+English - PDF  
+
 ### Volume 34 (1878)
 
 #### Gibt es ein _Eozoon canadense_? Erwiderung auf Dr. C. W. Gümbels und Dr. Carpenters Entgegnung von Otto Hahn in Reutlingen (Hiezu Taf. II.)
