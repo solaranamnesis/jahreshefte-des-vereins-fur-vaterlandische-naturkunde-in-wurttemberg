@@ -10,6 +10,11 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 #### Giebt es ein _Eozoon canadense_? Eine mikrogeologische Untersuchung von Otto Hahn in Reutlingen
 
+[German Plain Text](32/full-text-german.md#giebt-es-ein-eozoon-canadense-eine-mikrogeologische-untersuchung-von-otto-hahn-in-reutlingen)  
+German - PDF  
+English Plain Text  
+English - PDF  
+
 ### Volume 33 (1877)
 
 #### 4. Rechtsanwalt O. Hahn in Reutlingen sprach über die Anwendung des Gesetzes des mechanischen Aequivalents der Wärme auf die Nationalöconomie
