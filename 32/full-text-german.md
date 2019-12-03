@@ -84,3 +84,29 @@ Was an diesem Stücke besonders auffällt, ist, dass der Kalk nur in kleinen Fl�
 Für alle 3 Stücke gilt Folgendes:
 
 Der Serpentin entstand unzweifelhaft aus Olivin, welcher in eine noch weiche Kalkmasse gelangte. Wo die Zersetzung ruhig vor sich geht und kein Druck eintritt, wird der Serpentin anfangs die Form des Olivins nahezu behalten, bei weiterer Zersetzung aber wird das weiche Korn schon in Folge des von der überlagernden Masse ausgeübten Drucks zunächst platter gedrückt. Bietet sich kein Ausweg oder findet von den Seiten ein Gegendruck statt, so werden sich Walzen mit elliptischem Durchschnitt bilden, bei weiterem Druck endlich Schichten (Lagen) in der Kalkmasse. Wenn nun aber, wie bei Handstück III. ungleichmässiger Druck eintritt, müssen die Lagen zertheilt, zerrissen werden, die Theile aber werden nun, wenn sie erhärten, in ihrem Durchschnitt Körnerstructur zeigen. — Es kann davon keine Rede sein, dass die Kalk-Zwischenmasse vor dem Serpentin verhärtet oder auch nur da gewesen wäre, sonst wäre die Fluidalstructur nicht mehr erklärlich.
+
+Die Astsysteme sind von sehr verschiedenem Durchmesser, verschieden ferner hinsichtlich ihrer Vertheilung und Form. Sie bestehen aus Kalk. Nirgends sieht man eine Einhüllung etwa wie Muschelsubstanz um sie herum, vielmehr verschwimmen sie sogar mit ihrer Umgebung.
+
+Weiter wurden untersucht:
+
+IV. Serpentinkalk vom bayerischen Wald. Es folgen sich Kalk, Kalk mit Graphit, Kalk mit Serpentin, körnig wie in III., Serpentin, Kalk mit Serpentin, Kalk mit Graphit. Deutliche Chrysotillagen um die Serpentinkörner. Keine Spur von Astsystemen.
+
+V. Serpentinkalk von Krummau (Böhmen) von Prof. Dr. v. Höchstetter. 1. dessgleichen mit Säure behandeltes Stück.
+
+Durch schwarze Einschlüsse ist der wasserhelle Kalk grau gefärbt; eine grössere vielfach zertheilte Serpentinlage. Der Serpentin ist mit einer Chrysotilschichte umhüllt, die sich als feine weisse Linie darstellt.
+
+Keine Astsysteme.
+
+VI. Eines weiteren Serpentinkalks werde ich unten erwähnen.
+
+Es wurden alle zu Gebot stehenden Serpentinkalke, insbesondere von Elba, Lissiz, untersucht. So ähnlich letzterer den obigen II ist, keine Spur der Astsysteme, wohl aber die Chrysotilschale. Hinsichtlich letzterer verweise ich auf Draschke in Tschermack mineral. Mittheilungen 1871. Heft 1. S. 1.
+
+Ferner wurden etwa 30 Serpentine von den Afterkrystallen vom Snarum bis zum reinen Sedimentgestein, endlich alle zu Gebot stehenden Urkalke untersucht, und zum Schlusse etwa 20 Gneisse. In dem vom Montblanc fand ich die Astsysteme wieder.
+
+### IV.
+
+Ich hielt es für das einfachste bei der Beschreibung des _Eozoon_-Gesteins, wenn auch nicht den Entdecker desselben, so doch den ersten Erforscher reden zu lassen.
+
+Seiner Darstellung des _Eozoon c_. ist nicht mehr viel beigefügt worden. Gümbel wollte noch Warzenansätze gefunden haben. Max Schultze theilt mit, dass nach Glühen des Gesteins die Astsysteme sich schwarz gefärbt haben; er schliesst daraus, dass der Inhalt derselben organischer Natur gewesen sei.
+
+Ich könnte nur Bekanntes wiederholen, wenn ich den Stand der Streitfrage hier wiedergeben wollte. Eine eingehende Darstellung der entgegengesetzten Meinungen giebt Zirkel (Dr. Fr. Zirkel, die mikroskopische Beschaffenheit der Mineralien und Gesteine, Leipzig 1873. S. 313.). Was Max Schultze betrifft, so verweise ich auf die Verhandlungen des naturhistorischen Vereins der preussischen Rheinlande und Westphalens. XXX. Jahrgang, S. 164., leider eine unvollendete Arbeit des berühmten Forschers.
