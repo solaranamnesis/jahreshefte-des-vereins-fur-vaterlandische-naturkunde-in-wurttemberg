@@ -150,3 +150,21 @@ Nun war ich am Schluss meiner Arbeit so glücklich, zwei Serpentinkalksandstück
 Diese Handstücke zeigen in ihrem inneren Theile ganz dieselben Serpentinlagen, wie die Canadischen, im Durchschnitt ganz dieselben Kammern. In der Mitte der Kammern aber sind die noch prachtvoll (roth und grün) polarisirenden Olivinkerne. Im Gestein, wo die Zersetzung nicht so weit vorgeschritten ist, liegen noch rund, ovale, kantige Stücke und zuletzt fand ich noch Krystallflächendurchschnitte und die Olivin-Winkel.
 
 Dass also der Olivin hier die Serpentinmutter ist, ist zweifellos — aber es ist zugleich erwiesen, wie die Zersetzung des Olivius vor sich gieng. Der Olivin verwandelte sich von aussen in eine gallertartige Masse. Es geschieht dies bekanntlich felderweise und daher hat der Serpentin, da sich an den Gränzen der Felder Chrysotilschnüre bilden — hintendrein das Ansehen von Kammern. Die Zersetzung kann so stückweise und durch alle Stadien bis zu der Bildung der canadischen Stücke verfolgt werden. Die Gallertmasse polarisirt nicht mehr, erst die neugebildete Serpentinmasse polarisirt in der Weise, wie alle Aggregatgesteine; es hat eine neue Krystallbildung begonnen.
+
+Es lässt sich also in den beiden Handstücken die Serpentinbildung nach der Gestalt, die sie annahm, verfolgen, entsprechend die Einwirkung des zersetzenden Wassers vom eingebetteten noch vollständig erhaltenen Olivinkrystall mit deutlichen Sprüngen bis zur (einst flüssigen) Serpentinmasse. — Man denke sich nun die Olivinkrystalle allmählig in Gallerte verwandelt. Letzere musste sich gleichmässig in der ebenfalls noch weichen Kalkmasse lagern, folglich — rund werden. Nun genügte der leiseste senkrechte Druck, um den Gallertkugeln die Walzen- oder die Linsenform zu geben, immer wird ihr Durchschnitt eine Linie sein, wie die des canadischen _Eozoon_-Gesteins. Auch finden sich die Zwischengänge. Weiter findet sich überall am Serpentin stellenweise an der Berührungsstelle mit dem Kalke die „Haut“ oder Asbestschicht d. h. eine krystallisirte Schichte mit Nadeln.
+
+An den vorliegenden Handstücken also ist erwiesen, dass aus Olivinkrystallen die Kammern, die Zwischengänge und die Haut der „Riesenforaminifere“ entstanden, sie also reine Gesteinsbildungen sind.
+
+Aehnlich habe ich es sogar im canadischen Gesteine beobachtet. Nur sind die Olivine dort nicht mehr so frisch, wie in diesen. Da aber die Serpentinmasse in ganz gleicher Form wie dort an der Aussenseite des Handstückes sich findet, so ist der Schluss, dass beide ursprünglich in gleichem Zustand sich befanden, ein durchaus berechtigter.
+
+Die Kalkschichten finden sich in Serpentingesteinen, die sicher keine _Eozoon_-Gebilde enthalten. Dafür, dass sie ihre Entstehung einer Foraminiferen-Schale verdanken, spricht gar nichts.
+
+Jetzt wird die Frage aufgeworfen werden: Finden sich auch die Astsysteme des canadischen Gesteins in den beiden Handstücken? Nein; mit Ausnahme einer Stelle in einer grünen Masse, die nicht polarisirt. Möglich wäre es jedoch, dass die Masse von Kalk über- oder unterlagert wäre und dass das Astsystem im Kalk sich befände. Allein gerade diese Stelle zeigt auch die wasserhellen Punkte, eingesprengten Aragonite, an welche nach meiner Beobachtung auch bei dem canadischen Gestein stets das Vorhandensein der Astsysteme gebunden ist. Im ganzen übrigen Gesteine der Dünnschliffe ist kein Aragonit und kein Astsystem.
+
+Ziehen wir nun die nächsten Schlussfolgerungen:
+
+Bei der Ausscheidung des Aragonits aus dem Kalke blieb Wasser oder irgend eine andere noch kalkhaltige Flüssigkeit zurück. Diese drang bei vorhandenem Druck in die weiche Kalkmasse ganz in derselben Weise, wie jede Flüssigkeit in eine andere dichtere eindringt, in Verästelungen.
+
+Man könnte dies als Hypothese ansehen, obgleich die Erklärung sehr nahe liegt. Man darf entgegnen, dieser Vorgang müsse sich doch auch sonst wiederholen.
+
+Nun gelang es mir aber weiter im Gneis vom Montblanc, vom Schwarzwald, ja sogar im Syenit vom Plauen'schen Grunde (Sachsen) und im Syenite des Schwarzwalds überall diese Astsysteme nachzuweisen. Ich habe in etwa 30 Dünnschliffen dieselben bei gekreuztem Nicol beobachtet. Nur so kommen sie im durchsichtigen Feldspath und Kalk zur Erscheinung — so aber in einer Schönheit, wie bei den Canadischen.
