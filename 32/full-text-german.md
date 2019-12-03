@@ -168,3 +168,65 @@ Bei der Ausscheidung des Aragonits aus dem Kalke blieb Wasser oder irgend eine a
 Man könnte dies als Hypothese ansehen, obgleich die Erklärung sehr nahe liegt. Man darf entgegnen, dieser Vorgang müsse sich doch auch sonst wiederholen.
 
 Nun gelang es mir aber weiter im Gneis vom Montblanc, vom Schwarzwald, ja sogar im Syenit vom Plauen'schen Grunde (Sachsen) und im Syenite des Schwarzwalds überall diese Astsysteme nachzuweisen. Ich habe in etwa 30 Dünnschliffen dieselben bei gekreuztem Nicol beobachtet. Nur so kommen sie im durchsichtigen Feldspath und Kalk zur Erscheinung — so aber in einer Schönheit, wie bei den Canadischen.
+
+Hiemit ist auch von dieser Seite durch Nachweis einer ganz gleichen Erscheinung in anderem Gestein für die Astsysteme eine Erklärung gefunden.
+
+Und so ist das letzte Merkmal der „Riesenforaminifere“ weggefallen, ein Merkmal, welches übrigens allein den Beweis der organischen Natur der _Eozoon_-Gebilde nicht zu erbringen im Stande wäre.
+
+Ich könnte hiemit schon meine Arbeit schliessen. Allein ich will den Gegenbeweis und seine Begründung auch nicht im kleinsten Theil schuldig bleiben. Ich gehe daher über zu
+
+### 2. Den mineralogischen Thatsachen.
+
+In die Bildung der canadischen _Eozoon_-Serpentine theilen sich auf den ersten Anblick blos 3 Mineralien: Bitterspath, Serpentin und Kalk.
+
+Bei näherer Untersuchung fanden sich aber noch weitere Minerale:
+
+Nro. II. hat oben einen 7 mm. breiten Chrysotilstreifen, der sich im Serpentin mehrfach wiederholt. Sobald ich nun die Fläche der Platte etwas rauh anschliff, so zeigt sich ein silberglänzender Faden überall um die Serpentinbänder, der nicht blos Asbestartig, sondern wirklich Asbest, nämlich Chrysotil ist.
+
+Ausser Chrysotil findet sich Aragonit in eingesprengten, wasserhellen Körnern, sogar in 6-seitigen Säulen.
+
+Den Aragonit umgiebt dieselbe Masse, welche die Ast-Systeme bildet; sie ist weiss im auffallenden, braun im durchfallenden Lichte. Mit Säure behandelt löst sie sich zugleich mit dem Kalk. Wären die Astsysteme in Verbindung mit den Kammern und wie Carpenter meint, von diesen aus mit Serpentinmasse injicirt, so würden sie sich in Säure überhaupt nicht lösen, so müssten sie Serpentin sein, Serpentinfarbe und Polarisation zeigen. Wo Serpentinkörner sind, zieht sich dieselbe weisse Masse in die das Serpentinkorn rings umgebenden Kalk-Sprünge. Erst in den Wechsellagern sind die Astsysteme im Kalk und häufig lässt sich ihr Ursprung an den eingesprengten Aragonitkörnern deutlich auffinden.
+
+Hieraus ergiebt sich für die Bildung des Gesteins Folgendes:
+
+Di^ Serpentin -Körn er waren ursprünglich Olivin. Bei ihrer Zersetzung quollen sie auf und zersprengten daher den umliegenden Kalk, wobei die flüssige weisse Kalkmasse in die Risse eintrat. Wo aber die Kalkmasse noch weich war, als die Serpentinmasse darin aufquoll, drückte entweder die sich ausdehnende Serpentinmasse selbst die weisse Kalkflüssigkeit in den Kalk, dann bildeten sich die Astsysteme; oder aber erfolgte ein Druck auf die ganze Masse , dann trat dieselbe Wirkung ein, nur die nächste Ursache war eine andere.
+
+Es ist unzweifelhaft ein Druck entweder von innen durch die sich zersetzenden Olivinkörner, oder von aussen auf die ganze Masse, welche die Astsysteme hervorbrachte. Dies beweist auch ihre Gestalt. Einmal sind dieselben in ihren Ansätzen ganz regellos. Wo sie etwa in einer Spirallinie ansetzten, ist dies dem Umstand zuzuschreiben, dass eben die Kalklage schon, aus welcher sie entsprungen, eine kreis- oder spiralförmige, durch Druck hervorgebrachte Lage hat, wie dies Handstück III. zeigt. Das ist aber Zufall. Gewöhnlich sind sie regellos in ihrer Lage, Stellung und Form. Ich habe einen solchen Ast bei 750-maliger Vergrösserung beobachtet. Keine Spur von Kalkumhüllung — von Röhrenform, vielmehr ist das Bild das eines Risses — der Ast ist ganz unregelmässig, bald dicker, bald dünner, vor- und rückwärtsgezackt.
+
+Zum Schlüsse habe ich noch hinsichtlich des Kalkes eine Bemerkung zu machen. Derselbe besteht wie alle Urkalke aus einzelnen Individuen, welche durch ihrea Blätterbruch und eine Linie sich deutlich von einander abgränzen, im polarisirten Lichte vollends wegen ihrer verschiedenen Lage durchaus sich als Individuen zeigen. Manche Individuen haben die durch Druck entstandenen Zwillingsblätter durchgänge. Ich habe hier auf die Entdeckung des Herrn Prof. Dr. v. Reusch zu verweisen, welcher durch Schlag die Blätterdurchgänge hervorbrachte. Diese Erscheinung deutet schon auf einen gewaltigen Druck, den die Masse nach ihrem Festwerden erlitt. Eigenthümlicher Weise finden sich keine Astsysteme in den Kalkindividuen mit Zwillingslamellen. Auch dehnt sich ein Astsystem gewöhnlich nicht über ein Kalkindividuum aus. Dies erklärt sich einfach. Nur in ein noch weiches In- dividuum konnte die Flüssigkeit eindringen: so musste sie schon an dem nächsten etwas mehr erhärteten eine Gränze finden. Nicht übersehen darf es werden, dass die Aeste da wo sie an die Serpentinmasse oder ein Nachbar-Individuum anstossen, dicker werden, und wie mit einem Knoten endigen, der sicherste Beweis für eine nachdrängende, hier sich aufstauende Masse.
+
+Die Astsysteme finden sich nur da, wo die Serpentinmasse lang gestreckt, durchaus gelblich durchsichtig ist, also nur da, wo die ganze Masse sichtlich vollständig metamorphosirt, erweicht, ja in einem breiigen Flusse und schon in diesem Zustande gepresst war, denn nur so konnten sich die ursprünglichen Olivinformen in Serpentinlagen verwandeln. So erklären sich auch die senkrechten Linien, in welchen die Serpentinschichten an eine schmale Kalkschicht seitlich anstossen.
+
+So bleibt denn für
+
+### 3. Die zoologischen Thatsachen
+
+nicht mehr viel übrig.
+
+Werfen wir einen Blick auf die bisherigen Resultate, so haben wir für jeden Theil des Eozoon
+
+die Kammern, die Wände mit' Stollen, die Haut, die
+
+Zwischenmasse mit grossen Durchgängen, sowie die Astsysteme
+
+nicht nur eine zureichende geologisch-mineralogische Erklärung, sondern auch dieselben Erscheinungen in Gesteinen, wo Niemand von einer Eozoon-BW^mig sprechen wird, es müssten denn nur die Astsysteme im Gneis für sich schon für organischen Ursprungs erklärt werden. Ich gestehe, ich war im Augenblick zweifelhaft, ob sich nicht vielleicht für diese Bildungen im Gneis eine Analogie in den Spongien finden Hesse. Ich musste aber auf den schönen Gedanken verzichten, nachdem ich erkannte, dass die Astsysteme aus Quarz bestanden, der den Feldspath durchdrang. Hier möchte ich diese noch nie beobachtete Erscheinung übrigens der weiteren Prüfung empfehlen: ich glaube, dass sie ein neues Licht auf die Entstehung des Gneises wirft.
+
+Gewiss trägt es nicht zur Sicherheit der Schlussfolgerung bei, wenn man zu dem organischen Wesen, welches gefunden sein soll, durchaus kein ganzes Analogon und zu seinen einzelnen Theilen wieder keinen wenigstens ganz gleichen Theil an einem andern Wesen findet. Polythrema ist regelmässig. — Mit den Acervulinen, zu welchen Max Schulze das Eosoon ordnet, hat es nichts gemein, als die — Unregelmässigkeit, in solchen Dingen eine Aehnlichkeit von sehr zweifelhaftem Werth. Die Calcarinen haben ganz regelmässig geordnete Astsysteme. Nicht wenig trug der Umstand zur Verwirrung bei, dass unsere Zoologen eben ganz andere Präparate gewohnt sind, als Gesteine, und die vorgefasste Meinung haben, als könne jede irgend symmetrische Bildung nicht mehr unorganisch sein. Ich verweise nur auf das mikroscopische Bild des Pechsteins von Arran. Kein Gestein aber trügt hier mehr als der Serpentin. Diese grünlichgelbe durchsichtige Masse mit dem eigenthümlichen, zitternden Lichtglanz (von wasserhellen Krystallen) sieht der Sarcode so täuschend ähnlich, dass man es einem Zoologen nicht übel nehmen darf, wenn er sich von dem beim ersten Blicke sich aufdrängenden Gedanken nicht mehr loszureissen vermag. Kommt nun zum Unglück die wurmförmige Gestalt dazu, ist die Sarcodemasse noch von einer Asbestschicht umkleidet usd sieht man endlich auch noch „ Zahnsubstanz " und Caual- oder Astsysteme — dann ist es zu viel. Kann es da wundern, wenn ein Anderer auch noch gar Warzenansätze findet? Und doch nichts als Täuschung. Ein nur geringer Grad von ruhiger Beobachtung würde sofort zur Wahrheit zurückgeführt haben. Es müsste nämlich der Beobachter an der Einen Thatsache schon stutzig geworden sein, nämlich daran, dass die Astsysteme nicht aus Serpentinmasse bestehen; dies aber hätte ein Blick in's Mikroscop bei polarisirtem Licht sofort gezeigt. Die Astsysteme durchdringen immer die Kammerwände der Operculinen. Hier keine Spur; vielmehr eine durchaus verschiedene Füllmasse in beiden. — Ja ein einziges Olivinkorn oder Kalkstückchen in einer J&o^oow-Kammer müsste doch billig die Frage herausfordern, wie soll ein Olivinkorn in eine Foraminifere kommen ? Man würde bei genauer Beobachtung ferner ganz für sich bestehende Kammern gefunden haben, d. h. Körner. Auch die Schale von Chrysotil ist nicht regelmässig vorhanden, wo sie vorhanden, für den Geologen nicht zu verkennen. Allein an dieser Schale begegnete den Zoologen sogar eine Täuschung des Auges.
+
+Die Serpentinmasse nämlich ist immer rund. Wird eine Kammer irgend wie geschnitten, ausser genau äquatorial, so überragt natürlich die Kalkmasse die Serpentinmasse, es blickt eine durch die andere durch, die innere Schnittkante projicirt sich nun als Linie auf der Schnittfläche und so erscheint, vollends wenn Asbestnadeln am Kalkrand sitzen, und theilweise hervorstehen , eine Schale. Von der Täuschung kann man sich bei Einbuchtungen der Serpentinmasse leicht überzeugen, ebenso an reinen Aequatorialschnitten.
+
+Chrysotilschichten sind in jedem Serpentin zu finden. Die Serpentinverwitterung geht abtheilungsweise vor sich und daher die täuschenden Wände.
+
+Wie sollte, musste man sich weiter fragen, ein Astsystem vor einem Krystallindividuum Halt machen? War nämlich die Kalkschale ursprünglich da, so mussten die Astsysteme dieselbe nach dem Gesetz des organischen Baues durchdringen. Trat später Krystallbildung oder irgend ein Umstand, welcher die Astsysteme zerstörte, ein, so änderte dies an der ursprünglichen Anordnung der Astsyteme nichts — sie konnten höchstens stellenweise und zwar in einzelnen Krystallindividuen verschwinden, mussten aber in dem nächsten Individuum sich fortsetzen. Allein von all dem nichts. Vielmehr sind die einzelnen Systeme eben in Krystall-Individuen vollständig eingegränzt, woraus hervorgeht, dass die Krystall- ja die Kalkmasse früher da war, als das Astsystem. Diese Krystall- Individuen sind nur Anfänge der Krystallbildung. Und endlich muss man fragen: warum Astsysteme nie in Zwillingskrystallen? Aus dem einfachen Grunde, weil diese schon härter als die andern Theile noch weich waren.
+
+Als letztes will ich noch erwähnen, wie unwahrschein- lieh die Erhaltung der Bildungen in dem Gesteine war, das solch deutliche Spuren der erlittenen Gewalt an sich trägt.
+
+Ich denke , dass nach diesen Feststellungen das Eosoon nach kurzem aber schönem Dasein begraben wird. Es war eben ein Morgenröthethier.
+
+Zum Schlüsse sage ich meinem verehrten Lehrer Herrn Prof. Dr. V. Quenstedt in Tübingen und Herrn Dr. v. Hochstetter in Wien meinen verbindlichsten Dank für die Liberalität, mit der sie mir Material für meine Untersuchungen gegeben haben.
+
+Auch kann ich nicht unterlassen, die vorzüglichen Gesteins-Dünnschliffe des Herrn R. Fues in Berlin zu empfehlen.
+
+Meine Untersuchungen habe ich mit einem vorzüglichen neuen Hartnack'schen Instrumente (VII A) und einem englischen von Baker in London gemacht.
+
+Im Oktober 1875.
