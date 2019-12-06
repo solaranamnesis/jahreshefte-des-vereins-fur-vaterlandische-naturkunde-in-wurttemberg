@@ -6,7 +6,7 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 #### II. 3. Rechtsanwalt Hahn aus Reutlingen sprach über die Anwendung des Mikroskops in der Geologie
 
-[German Plain Text](30/full-text-german.md#)  
+[German Plain Text](30/full-text-german.md#ii-vorträge)  
 German - PDF  
 English Plain Text  
 English - PDF  
