@@ -33,3 +33,39 @@ Die Folgen dieser Entdeckung sind leicht vorauszusehen. Die Gesteine lösen sich
 Ich glaube nicht zu viel zu sagen, wenn ich der Anwendung des Mikroskops in der Geologie dieselbe Bedeutung beilege wie der Entdeckung der Spectralanalyse in der Astronomie.
 
 Zum Schluss noch ein Wort über die Herstellung der Dünnschliffe.
+
+Ich schlage von frischem Gesteine einen Splitter von 1-2 □cm. Grösse ab, schleife eine Fläche mittelst nicht zu groben Schmirgels auf einer gusseisernen Platte. Nachher nehme ich den Schliff auf eine mattgeschliffene Glasplatte, behandle ihn mit Schmirgelpulver oder auf einen Schleifstein mit Oel. Ist die Fläche hergestellt, so wird der Splitter auf ein dickes Glasstück mit Canada-Balsam aufgeklebt. Es geschieht dies, indem man ein oder einige Tropfen Balsam auf das Glasstück bringt, letzteres leicht erwärmt, den Balsam anzündet und wenn er ausgebrannt hat, den Splitter mit der geschliffenen Fläche schnell auf das Glas drückt. Der Balsam muss vollständig hart werden — auch dürfen keine Luftblasen sich zeigen.
+
+Nun wird der Splitter auf der andern Seite ebenso geschliffen, wobei Vorsicht nothwendig ist, dass er bei Zeiten auf die feine Platte genommen und nicht abgeschliffen wird. Es empfiehlt sich, ihn, wenn er einmal durchsichtig wird, von Zeit zu Zeit mit einer guten Loupe oder mit schwacher Vergrösserung unter dem Mikroskop zu untersuchen. Ist er so, dass man dadurch lesen kann, so ist er gut.
+
+Jetzt wird der Schliff mit Terpentinöl gereinigt, abgetrocknet, über der Weingeistflamme von unten erwärmt, und sobald er sich löst, mit einem Hölzchen etc. über die Glasfläche in ein Uhrglas mit Terpentinöl geschoben, darin etwa 1/4 Stunde liegen gelassen, auf ein Fliesspapier gebracht und, nachdem er nöthigenfalls mittelst eines Pinsels vom anhängenden Balsam gereinigt ist — getrocknet und jetzt leicht erwärmt, um etwaige Luft zu entfernen.
+
+Zum Schluss wird der Schliff auf ein Objectglas gebracht, auf die bekannte Weise in Balsam eingelegt, mit Aufschrift und Nummer des Handstücks versehen und sicher aufbewahrt.
+
+Es sind solche Schliffe fertig zu haben. Ich nenne:
+
+E. Neumann, Mechaniker in Freiberg, in Sachsen, welcher eine grosse Anzahl (der neueste Catalog gibt 50 Gesteins-, 18 Mineralschliffe an) das Stück zu 7 1/2 Sgr liefert. (50 Stück in Kasten zu 13 Thlr.)
+
+Eine Serie von 30 typischen prachtvollen Gesteinsdünnschliffen in Kasten zu 15 Thlr. liefert
+
+R. Fues in Berlin, Wasserthorstrasse Nr. 46. (Einzelne kosten 15 Sgr.)
+
+Voigt und Hochgesang in Göttingen,
+
+Opticus Möller in Giessen,
+
+stellen sich würdig an die Seite. (Letzterer liefert das Stück zu 12 Sgr.)
+
+Die französischen Präparate von
+
+Charles Marchand und J. Bourgogne in Paris verdienen ebenfalls Erwähnung, (Preis 1 — 1 1/2 Franken); doch sind die deutschen bei weitem besser und instructiver.
+
+Die genannten deutschen Verfertiger liefern auch Dünnschliffe von jedem ihnen eingesandten Gesteinsstücke.
+
+Für optische Zwecke vorzugsweise eignen sich die Krystallschliffe von
+
+Wilhelm Steeg von Homburg v. d. Höhe,
+
+Es wurden in der Versammlung die Neumann'schen, sowie die von Dr. Fritzgärtner in Reutlingen und von mir gefertigten Dünnschliffe vorgezeigt. Unter letzteren sind besonders die Schliffe sämmtlicher Basalte Württembergs und die vulkanischen Einschlüsse Schwabens, welche ich Herrn Carl Deffner in Esslingen verdanke, zu nennen.
+
+Zur Beobachtung diente ein Hartnack'sches Instrument mit Polarisationsapparat, welches Herr Schlesinger zur Verfügung gestellt hatte.
