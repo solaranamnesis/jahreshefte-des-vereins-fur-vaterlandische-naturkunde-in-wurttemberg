@@ -6,6 +6,11 @@ Public domain works from the Annual Bulletin of the Association for National Nat
 
 #### II. 3. Rechtsanwalt Hahn aus Reutlingen sprach über die Anwendung des Mikroskops in der Geologie
 
+[German Plain Text](30/full-text-german.md#)  
+German - PDF  
+English Plain Text  
+English - PDF  
+
 ### Volume 32 (1876)
 
 #### Giebt es ein _Eozoon canadense_? Eine mikrogeologische Untersuchung von Otto Hahn in Reutlingen
