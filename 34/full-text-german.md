@@ -123,3 +123,37 @@ Diese Thatsache, d. h. das Fehlen des Serpentins an anderen Stellen des Kalks, s
 6\. Noch eines weiteren nicht minder gewichtigen Einwurfs muss hier Erwähnung gethan werden.
 
 So bequem es der Serpentin der künftigen Forschung gemacht, indem er für Herstellung von ganz genauen Modellen gesorgt hätte, so wenig war er doch eigentlich dazu nothwendig, jedenfalls trug er nichts zur Erhaltung der Kalkschale des Morgenröthe-Thierchens bei.
+
+Wie kommt es nun, muss man sich fragen, dass während in Einem Stücke die zartesten Theile des „Thiers“ im Kalk erhalten sind, nämlich die Astsysteme, diese mit der Kalkschale (dem proper wall, dem eigentlichen Thierknochen) sich nicht sonst im Kalk (ohne Serpentin-Ausfüllung) erhalten haben, für die oberflächliche Beobachtung wohl weniger deutlich, aber natürlich im Dünnschliff sofort erkennbar?
+
+7\. Aus dem Bericht W. Dawson's, Quarterly Journal l. c. 228 geht hervor, dass sich die „Kanalsysteme“ im blosen Kalk finden, aber auch nur diese und ohne die „Schale“. Also Astsysteme und keine Schale, folglich Astsysteme wie im Chondrodit- und Spinellkalk!
+
+8\. Betrachtet man den Durchschnitt, welchen W. Dawson in seinem „Life's Dawn“ S. 13 giebt, so ist gewiss, dass die Kalklager sehr erhebliche Pressungen erlitten haben. Sie sind wellenförmig gelagert, dies ist ohne starke Massenbewegung fast nicht denkbar. Man muss also die Wirkungen eines Drucks mit aller Nothwendigkeit in Rechnung nehmen, wobei der Druck sich auch auf blose Einschlüsse erstreckte. Im Durchschnitt S. 22 stehen die Schichten sogar auf den Köpfen. Dies genügt vollständig, um alle Erscheinungen zu erklären.
+
+9\. Einen eigenthümlichen Eindruck macht es, wenn Dr. Carpenter aus diesen Thatsachen völlig widersprechende Folgerungen und beide zieht, um dasselbe zu beweisen.
+
+Das eine Mal nämlich beruft er sich auf die gewaltigen Veränderungen, welche das _Eozoon_-Gestein erlitten habe und entschuldigt damit das Fehlen gewisser organischer Bildungen; das andere Mal wird hervorgehoben, wie unendlich feine Structurverhältnisse, welche die organische Natur beweisen, erhalten seien. Ueberall, wo das _Eozoon_ in der „Acervulinenform“ auftritt, fehlen die Schalen, fehlen die Zwischengänge, fehlen die Astsysteme. Nun lässt sich aber dafür kein vernünftiger Grund denken, warum in demselben Handstücke 3 cm entfernt die feinsten Structuren des _Eozoon_ sich erhalten haben sollten, 3 cm davon entfernt aber nicht.
+
+10\. Professor King und Rowley schon haben nachgewiesen, dass ganz dieselben Erscheinungen, wie im _Eozoon_-Gestein, in verschiedenen anderen Gesteinen sich finden, z. B. im Chondroditkalk, im Kalk und Spinell, im Coccolith.
+
+In der That habe ich in diesen Gesteinen und neuerdings auch in einem Serpentinkalk von Euston, worin die Crystalle selbst noch ganz unzweifelhaft erhalten waren, die Kammern, die Schale, die Astsysteme und „zahnsubstanzartige“ Bildung in derselben Weise wie in dem canadischen Gestein beobachtet.
+
+Die Astsysteme selbst sind von Dr. Dawson ohne die übrigen _Eozoon_-Theile im Kalk (ohne Serpentin) beobachtet worden. Dr. Dawson hat wohl nicht gefühlt, dass hiemit das Todesurtheil des _Eozoon_ gesprochen war. Denn Astsysteme ohne Schale und Kammern! Das Allerfeinste wäre erhalten, das Grobe untergegangen.
+
+Freilich, Dendriten von Lithographenkalk, Kupfer-, Silber-Dendriten möchte ich nicht als Analogien anführen. Letzteres sind Crystallbildungen.
+
+Ich habe aber auch in einem reinen Marmor Astsysteme beobachtet. Diese bilden also auch durchaus keine Besonderheit des canadischen Gesteins.
+
+11\. Zur Erklärung des canadischen Gesteins ist nur Eine Annahme nothwendig: dass wie in hundert anderen geschichteten Gesteinen eine (in regelmässigen Zeitzwischenräumen vor sich gegangene) gleichmässige Einlagerung von Olivin- oder Augitkörnern im Kalk sich vollzog. Damit sind die Serpentinlagen erklärt. Die Schale, sowie die Zwischengänge und Astsysteme waren Folge der Zersetzung (Anschwellung und Ausscheidung), dabei war Druck von aussen.
+
+Ich werde nun in Folgendem die einzelnen Theile der „Riesen-Foraminifere“ erörtern und die hierauf bezüglichen Thatsachen zusammenstellen.
+
+1\. Die Kammer (Chamber) und ihre Füllung.
+
+Es ist nachgewiesen, dass in diesen Kammern unzersetztes Mineral sich findet, welches auf wässerigem Wege sich nicht bilden kann und nicht gebildet hat, welches aber ebensowenig auf mechanischem Wege in die Kammern gelangen konnte. Der Serpentin ist ein Zersetzungsproduct und kann von den verschiedensten Mineralien kommen. Wo sich unzersetztes Mineral findet, kommt es selbstredend von diesem. Hier muss aber aller Serpentin als aus diesem Mineral entstanden angenommen werden. Oben ist schon erwähnt, wie es doch ein Wunder sondergleichen wäre, wenn der Serpentin durch grosse Kalklager hindurch durch mikroskopisch kleine Canäle einzig in Foraminiferen-Kammern sich abgelagert hätte, sonst aber nicht vorhanden wäre. Also ist die umgekehrte Annahme die richtige: der Serpentin hat sich an Ort und Stelle aus dem Mineral gebildet, dann ist er an die Stelle des Minerals und nicht an die Stelle einer Sarcode in die nun leere Kammer eingedrungen.
+
+Was die Form dieser Kammern betrifft, so erklärt sie sich einfach durch die Einlagerung von Olivin- oder Augitkörnern im Kalk. Von Chondrodit sieht man sie ebenso. Bei der Verwandlung in Serpentin, welche blos durch Hinzutritt von Wasser sich denken lässt, quollen die nebeneinander in Schichten liegenden Crystalle auf und reihten sich so an einander. Hierdurch entstanden:
+
+2\. die Zwischengänge (Stolons).
+
+Diese sind von äusserst unregelmässiger Form. Wohl zu unterscheiden sind die Zwischengänge, welche nicht von Serpentin, sondern von einem anderen Mineral ausgefüllt sind. Wäre nämlich der Serpentin blose Füllmasse der Zwischenräume, so müsste er alle Hohlräume gleichmässig ausgefüllt haben. Diese sind aber eben nicht von Serpentin, sondern von einer anderen Masse ausgefüllt. Wir werden hierauf bei den Astsystemen kommen. Diese Zwischengänge sind völlig unregelmässig.
