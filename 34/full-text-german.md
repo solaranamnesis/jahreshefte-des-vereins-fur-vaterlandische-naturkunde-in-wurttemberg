@@ -157,3 +157,33 @@ Was die Form dieser Kammern betrifft, so erklärt sie sich einfach durch die Ein
 2\. die Zwischengänge (Stolons).
 
 Diese sind von äusserst unregelmässiger Form. Wohl zu unterscheiden sind die Zwischengänge, welche nicht von Serpentin, sondern von einem anderen Mineral ausgefüllt sind. Wäre nämlich der Serpentin blose Füllmasse der Zwischenräume, so müsste er alle Hohlräume gleichmässig ausgefüllt haben. Diese sind aber eben nicht von Serpentin, sondern von einer anderen Masse ausgefüllt. Wir werden hierauf bei den Astsystemen kommen. Diese Zwischengänge sind völlig unregelmässig.
+
+Folglich ist das, was in den Zwischengängen abgelagert ist, ein Ausscheidungsproduct bei der Zersetzung des Olivins oder Augits und in der That unterscheidet sich diese Füllmasse ganz deutlich von der der Kammer. Sie ist also ein Ausscheidungsprodukt und suchte sich einen Ausweg, nachdem der Raum für sie nicht mehr hinreichte.
+
+Aber es finden sich in jedem Handstücke eine grosse Zahl von Kammern, welche durchaus keine Zwischengänge haben und gerade diese zeigen noch crystallinische Structur mit Polarisationserscheinung von doppeltbrechenden Mineralien. Je weniger die Zersetzung vorgeschritten, um so mehr haben die Umrisse noch gerade Linien und nicht runde, wie die Kammern. Beide Erscheinungen zusammen beweisen, dass die Zwischengänge nur bei der Zersetzung des Serpentin-Gesteins entstanden sind. Ich zeige dies an einer Abbildung, Taf. II, Fig. 2, eines Dünnschliffs von einem Serpentinkalk, in welchem sowohl Olivinkörner als Serpentinkammern, und in welchen Aragonit, Flocculit und die Astsysteme vorkommen, wie im canadischen.
+
+Wo aber die Täuschung Dr. Carpenter's am bedeutendsten hervortritt, das ist
+
+3\. in der Schale (original cell-wall, proper wall).
+
+Dr. Carpenter nimmt es als ausgemacht an, dass die Kammern von einer Schale umgeben seien. Ich habe eine grosse Anzahl Schliffe durchgesehen und habe um den grössten Theil der „Kammern“ keine Spur einer Schale gefunden, obgleich die Erhaltung unter den ganz gleichen Bedingungen stand, wie die, wo man etwas der Art bemerken konnte.
+
+Allerdings ist überall fast das Bild einer Schale da, dies ist aber, wie ich schon früher zeigte, eine unverzeihliche optische Täuschung. Die „Kammern“ sind rund. Wird eine Platte daraus geschliffen, so erscheint die Seiten-Oberfläche des Serpentins (zwischen beiden Schnittflächen) als Schale. Die Sache klärt sich sofort, wenn man beobachtet, wie die „Schale“ dicker und dünner wird je nach der Rundung und der Schnittfläche. So stellen z. B. die schraffirten Linien 2, der Tafel 14 im Quarterly Journal of the Geological Society nichts dar als die Berührungsfläche des Serpentins mit dem Kalk. Sie sind das Bild der runden Serpentin-Oberfläche (der Seiten) auf der Ebene des Glases projicirt.
+
+In denselben Irrthum verfiel Dr. Dawson. Nun ist allerdings an manchen Stellen noch eine Parallellinie zu bemerken, welche eine Schale andeuten könnte und sind Nadeln in diesem Theile.
+
+Die ganze Masse der „Schale“ polarisirt nicht, ist also Kalk. Sie unterscheidet sich von der sonstigen Masse nur durch Chrysotil-Nadeln. Diese polarisiren, liegen unmittelbar am Serpentin an und stehen in unregelmässigen Abständen von einander. Nur selten steht eine ganze Ader von Chrysotil unmittelbar am Serpentin an.
+
+Was hier sofort jedem Foraminiferenkenner in die Augen springen muss, ist die Thatsache, dass diese Nadeln nicht senkrecht auf der Kammer stehen.
+
+Es giebt nämlich keine Foraminifere, keinen Nummuliten, überhaupt keine Muschelschale, in welcher die Tubuli der Schale nicht in der Richtung des Radius, sei es des Kreises oder der Elipse und zwar fast mathematisch genau lägen. Diese Thatsache ist der allersicherste zoologische Gegenbeweis gegen eine organische Schale. Die Nadeln liegen sogar horizontal an der Wand an, was nie in einer organischen Schale vorkommt. Dr. Carpenter braucht nur seine Abbildung von _Nummulites lavigata_, Fig. 258 seines Werkes „The Mikroscop etc.“ genau anzusehen, um sofort von dem Nichtvorhandensein einer Analogie zwischen Schale einer Foraminifere und der „Schale des Eozoons“ sich zu überzeugen.
+
+Ich habe hunderte von Nummuliten und Foraminiferenschliffen (gemacht und) gesehen und überall dieses Gesetz bestätigt gefunden.
+
+Allein die Tubuli sind und waren nie Röhren, sondern sind Crystallnadeln.
+
+Freilich wenn die Zeichnungen Dr. Dawson's auf S. 106 „Life's Dawn on Earth“ richtig wären, müssten es Röhren sein: diese Zeichnungen sind aber geradezu falsch. Ich habe diese Nadeln mit dem Immersions-Objectivsystem 10 von Hartnack (Ocular 3), untersucht.
+
+Die Tubuli der Nummuliten, auch der nur mikroskopisch sichtbaren Nummuliten, enthielten immer die Füllmasse der Kammern: wo diese Glauconit ist, ebenfalls Glauconit. Die Füllmasse der „Tubuli“ im _Eozoon_-Gestein ist, wie die Beobachtung bei polarisirtem Licht ergiebt, eine andere als die der Kammern, es ist crystallisirtes Mineral, denn es polarisirt, und zwar Chrysotil.
+
+Wenn Dr. Dawson Röhren abbildet (Life's Dawn on Earth S. 106), so sind die Abbildungen auch in diesem Theil falsch. Diese finden sich nirgends in der „Schale.“ Die Abbildung des daneben stehenden Chrysotils kann nicht mit der, „Schale“ verglichen werden, weil hier blos eingesprengte Nadeln sind, dort reiner dichter Chrysotil ist, welcher natürlich ein ganz anderes Bild giebt, als einige Chrysotil-Nadeln.
