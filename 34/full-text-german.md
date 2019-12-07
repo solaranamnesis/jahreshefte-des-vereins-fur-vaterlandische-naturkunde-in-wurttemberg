@@ -187,3 +187,39 @@ Freilich wenn die Zeichnungen Dr. Dawson's auf S. 106 „Life's Dawn on Earth“
 Die Tubuli der Nummuliten, auch der nur mikroskopisch sichtbaren Nummuliten, enthielten immer die Füllmasse der Kammern: wo diese Glauconit ist, ebenfalls Glauconit. Die Füllmasse der „Tubuli“ im _Eozoon_-Gestein ist, wie die Beobachtung bei polarisirtem Licht ergiebt, eine andere als die der Kammern, es ist crystallisirtes Mineral, denn es polarisirt, und zwar Chrysotil.
 
 Wenn Dr. Dawson Röhren abbildet (Life's Dawn on Earth S. 106), so sind die Abbildungen auch in diesem Theil falsch. Diese finden sich nirgends in der „Schale.“ Die Abbildung des daneben stehenden Chrysotils kann nicht mit der, „Schale“ verglichen werden, weil hier blos eingesprengte Nadeln sind, dort reiner dichter Chrysotil ist, welcher natürlich ein ganz anderes Bild giebt, als einige Chrysotil-Nadeln.
+
+Die Zeichnung S. 106 giebt, was die Dicke der Nadeln betrifft, ein sehr schlagendes Beispiel, wie wenig zuverlässig die Zeichnungen sind. Ich habe die „Schale“ des _Eozoon_ mit 1100 facher Vergrösserung beobachtet, aber nie auch nur annähernd das Bild, wie Dawson Fig. 27 l. c. es darstellt, erhalten, nur Fig. 49 c ist richtig. Die „Tubuli“ meiner Präparate sind alle mcht messbar: es sind bei der höchsten Vergrösserung stets Linien. Das ist eben die Folge ihrer Eigenschaft als Crystallaggregate, welche sich bekanntlich ins Unendliche theilen lassen Die Tubuli von _Amphistegina_ messen 0,0075 mm, von _Rotalia_ und _Calcarina_ 0,0075 mm, von _Tinoporus baculatus_ 0,0018 mm. Diese Tubuli stehen ferner alle in regelmässigen Entfernungen von einander ab und geben wirklich das Bild von runden Hohlräumen. Ebenso die Tubuli der Nummuliten. Hier ist aber noch etwas, was sich bei dem _Eozoon_ nicht findet, eine Horizontalstreifung, von den Schalenschichten herrührend, wie sie Dr. Carpenter richtig abbildet.
+
+Nimmt man dazu, dass der Chrysotil ganz regelmässig sich an den Rändern des Serpentins oder Pikroliths ablagert, dass in allen _Eozoon_-Stücken ganze Chrysotiladern sind, was durch den Polarisationsapparat leicht festzustellen ist, so ist es sicher, dass man es hier nicht mit den Röhren von Nummulitenschalen, sondern mit Nadeln im Kalk an der Grenze des Serpentins zu thun hat.
+
+Es liegen mir Dutzende von Serpentinen vor, wo überall eine solche Chrysotilschichte den Serpentin umlagert. Ich habe ein solches, worin ein Kalkstück eingebettet ist, und richtig ist der Kalk mit einer ganz vollkommen gleich dicken Schichte von Chrysotil umgeben, welcher in concentrischen Nadeln liegt und doch ist es sicher keine Nummulitenschale.
+
+Die angebliche Schale der Riesen-Foraminifere (die Seite horizontal projicirt) ist also nichts als in der Hauptsache eine optische Täuschung; wo etwas einer Schale Aehnliches zu finden ist, ist dasselbe in jedem Serpentinkalk. Ich erinnere hier nur an die Beobachtungen, welche Rosenbusch (l .c. S. 163) mittheilt
+
+„Wie v. Draschke um den Almandin der Eklogit regelmässig eine Zone von strahliger Hornblende fand, so bemerkt man an den Pyropen im Serpentin von Löblitz unter dem Mikroskop fast ausnahmslos eine deutliche Zone von Chrysotil, dessen Fasern (sogar) senkrecht auf den Umrissen des Pyrops stehen (Fig. 66).“
+
+Diesen Kranz von Chrysotilnadeln habe ich in allen Serpentin-Kalken gefunden.
+
+4\. Die Canäle in der Zwischenmasse (Astsysteme) hätten offenbar nur den einen Zweck, die Verbindung der Sarcode der Kammer mit der Aussenwelt herzustellen. In den von Dr. Carpenter als analog angeführten Foraminiferen finden sich grössere Gänge, welche alle Schalen durchsetzen, und kleinere, welche offenbar die Verbindung von einer Schale zur nächsten Kammer herstellen. Alle aber sind symmetrisch geordnet, die feinen Canäle ihrer Bestimmung zufolge gleichmässig vertheilt.
+
+Die Canäle des _Eozoon_ aber lassen sich mit jenen gar nicht vergleichen. Einmal fehlen sie überhaupt in dem grössten Theile eines jeden Stücks. Sodann treten sie mit grösster Unregelmässigkeit auf, das eine Mal rund, das andere Mal eckig, was nie in einer organischen Schale vorkommt; wie Dawson sie abbildet, wird sie nie ein Mikroskopiker gesehen haben. Ferner kommen sie vor in allen Durchmessern, gross und fein nebeneinander; der „Flocculit“, welcher sie ausfüllt, kommt daneben in völlig unregelmässigen Formen vor.
+
+Noch stärkerer Zweifel erhebt sich, wenn man sieht, dass diese Canäle in ganz ungleicher Richtung verlaufen und der schlimmste endlich ist der von mir schon früher hervorgehobene, dass sie nur in gewissen Kalkpartikeln vorkommen, offenbar also durch das Gestein bedingt waren.
+
+Finden sich aber solche Canäle in anderen Gesteinen, wie im Chondrodit- und in Serpentin-Kalken, welche nicht als _Eozoon_-haltig behauptet werden können, so stehen sie in keinem Zusammenhang mit den übrigen „Foraminiferentheilen“ und fällt ihr Beweiswerth für das Dasein einer Foraminifere zusammen. Mögen sie für sich allein der Rest irgend eines Thieres sein, das wäre möglich. Mit der Kammer und Schale haben sie nichts zu schaffen.
+
+In seinem Musterstück Pl. XVII zeichnet sie Dr. Carpenter, als liefen sie alle, eine wie die andere, von der untern Schale der Kammer nach der obern. Wenn ich gesagt habe, die Zeichnungen seien unzuverlässig, so wird das nächste beste Präparat von _Eozoon_-Gestein dies bestätigen. Denn die Astsysteme gehen nach allen Richtungen in Kalk, folglich besteht auch hier keine Uebereinstimmung mit Organismen.
+
+Und nun also Kammer, Schale, Zwischengänge, Astsysteme, alles, einzeln und zusammen, in anderen Gesteinen vorkommend, folglich keine Foraminiferentheile — und die ganze Foraminifere, wenn sie aus dem canadischen Gestein mit Mühe construirt werden könnte, doch in den wesentlichsten Theilen von allen bekannten verschieden! Für die allerwesentlichste Verschiedenheit halte ich die horizontale Stellung der angeblichen Tubuli zu den Kammern. Das erlaubt sich die Natur in der Muschelschale nicht, denn die radiale Strahlung der Sarcode-Organe ist ein durchgehendes Gesetz im Foraminiferen-Typus: es ist nämlich diese Richtung der geradeste Weg des Thieres zu seinem Lebenselement.
+
+Das ist eine Thatsache der Logik der Natur, welche der Zoologe am wenigsten übersehen sollte. Wir haben hienach im canadischen Gestein nichts als einen Serpentinkalk, ein Gestein, das hundertmal vorkommt, in einem Zersetzungszustand, wie er ebenfalls überall vorkommt.
+
+Alle Erscheinungen desselben sind mineralogisch vollständig erklärt.
+
+Haben also Dr. Carpenter und Dr. Gümbel den Todten auch
+ausgegraben, lebendig machen konnten sie ihn damit nicht. Möge
+er nun, zum zweiten Mal begraben, die Ruhe finden, welche er verdient.
+
+Erklärung zu Tafel II.
+
+Serpentinkalk von Euston, Pensylvanien. Handstück der Tübinger Universität, noch deutliche Olivincrystalle halb in Serpentin verwandelt; Kerne des ursprünglichen Minerals erhalten: die Olivine liegen lagerweise. Von einem Lager zum andern ziehen sich durch den Kalk gerade verlaufende durchsichtige Linien, welche u. d. M. sich als Canäle mit einer durchsichtigen Masse erfüllt ergeben und von dem grauen Kalke deutlich abstechen. Der Kalk enthält bei 100 facher Vergrösserung eine Menge schwarzbrauner Körner, völlig wie der canadische.
