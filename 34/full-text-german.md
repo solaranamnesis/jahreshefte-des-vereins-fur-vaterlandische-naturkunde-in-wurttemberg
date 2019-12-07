@@ -216,10 +216,30 @@ Das ist eine Thatsache der Logik der Natur, welche der Zoologe am wenigsten übe
 
 Alle Erscheinungen desselben sind mineralogisch vollständig erklärt.
 
-Haben also Dr. Carpenter und Dr. Gümbel den Todten auch
-ausgegraben, lebendig machen konnten sie ihn damit nicht. Möge
-er nun, zum zweiten Mal begraben, die Ruhe finden, welche er verdient.
+Haben also Dr. Carpenter und Dr. Gümbel den Todten auch ausgegraben, lebendig machen konnten sie ihn damit nicht. Möge er nun, zum zweiten Mal begraben, die Ruhe finden, welche er verdient.
 
 Erklärung zu Tafel II.
 
 Serpentinkalk von Euston, Pensylvanien. Handstück der Tübinger Universität, noch deutliche Olivincrystalle halb in Serpentin verwandelt; Kerne des ursprünglichen Minerals erhalten: die Olivine liegen lagerweise. Von einem Lager zum andern ziehen sich durch den Kalk gerade verlaufende durchsichtige Linien, welche u. d. M. sich als Canäle mit einer durchsichtigen Masse erfüllt ergeben und von dem grauen Kalke deutlich abstechen. Der Kalk enthält bei 100 facher Vergrösserung eine Menge schwarzbrauner Körner, völlig wie der canadische.
+
+Was nun insbesondere den Serpentin betrifft, so ist er im Kalk zerstreut, die Körner zeigen noch Crystallform, viele Kerne sind noch unzersetzter Olivin. Wo die Zersetzung vorgeschritten ist, schmelzen die Kerne zusammen. U. d. M. hat der Serpentin vollständig das Bild von Kammern wie im canadischen Gestein, nur sind die Serpentinkörner nicht so häufig aneinander gelagert.
+
+Dagegen zeigt
+
+Fig. 1 überaus klar eine Chrysotilschale um den Serpentin, die in den Kalk eindringt. Die Umrisse des Serpentins sind aber statt rund, wie im canadischen Gestein, hier oblong. Die Ecken fehlen.
+
+Dieselben unregelmässigen Umrisse zeigen Fig. 3 und 4.
+
+Fig. 2 zeigt 3 „Stolons“ aus einer halbzersetzten Olivinmasse. Die dunklere Farbe der Kerne bezeichnet den noch unzersetzten Olivin. Von demselben aus gehen diese Ströme einer durchsichtigen Masse, also offenbar wie bei der Zersetzung abgesondert und nach dem Gesetz der Schwere einen Ausweg vielleicht suchend. Wo sie seitwärts gingen, erklärt sich dies einfach durch einen leichten Druck auf die weiche Masse oder durch das Aufquellen der Masse in der Zersetzung. Dasselbe Gestein zeigt alle Formen der Astsysteme wie das canadische, insbesondere schön die sog. Zahnsubstanz.
+
+Man hat also alle hier Eozonal-Bestandtheile des canadischen Gesteins beisammen, aber in einer Zusammenstellung, dass Niemand auf ein organisches Wesen mehr rathen wird.
+
+Ist aber dies Alles in Form und auf sicher unorganischem Wege möglich, so ist auch das canadische Gestein so entstanden, und es bedürfte ganz anderer Beweise, um doch noch eine Verschiedenheit im Ursprung nachzuweisen. Dieses einzige Handstück nebst den beiden Dünnschliffen sind der augenscheinliche Gegenbeweis; ich werde letztere in der Tübinger Universitätssammlung niederlegen. Sicher wäre der Strom der _Eozoon_-Litteratur nicht so hoch angeschwollen, wenn man solche Beweisstücke früher gehabt hätte. Diese ans Licht gezogen zu haben, ist das einzige Verdienst, welches ich mir zuschreibe; denn einer Erklärung bedarf es kaum, wo ein einziger Blick schon ein voller Beweis ist.
+
+Zur Erläuterung der Abbildungen füge ich noch bei:
+
+Zu Fig. 1. Die gekörnte Fläche ist Kalk. Die weisse mit breiten Streifen Serpentin, die Bänder im Kalk Chrysotil.
+
+Zu Fig. 2 gilt dasselbe. Die 3 Gänge gehen von der Serpentinkammer durch den Kalk. Die dunklen Stellen im Serpentin sind Olivinkerne.
+
+Fig. 3 und 4 zeigen die Chrysotilbänder von andern Theilen des Dünnschliffs.
