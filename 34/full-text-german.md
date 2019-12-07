@@ -226,11 +226,11 @@ Was nun insbesondere den Serpentin betrifft, so ist er im Kalk zerstreut, die K�
 
 Dagegen zeigt
 
-Fig. 1 überaus klar eine Chrysotilschale um den Serpentin, die in den Kalk eindringt. Die Umrisse des Serpentins sind aber statt rund, wie im canadischen Gestein, hier oblong. Die Ecken fehlen.
+[Fig. 1](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-1.png) überaus klar eine Chrysotilschale um den Serpentin, die in den Kalk eindringt. Die Umrisse des Serpentins sind aber statt rund, wie im canadischen Gestein, hier oblong. Die Ecken fehlen.
 
-Dieselben unregelmässigen Umrisse zeigen Fig. 3 und 4.
+Dieselben unregelmässigen Umrisse zeigen [Fig. 3](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-3.png) [und 4](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-4.png).
 
-Fig. 2 zeigt 3 „Stolons“ aus einer halbzersetzten Olivinmasse. Die dunklere Farbe der Kerne bezeichnet den noch unzersetzten Olivin. Von demselben aus gehen diese Ströme einer durchsichtigen Masse, also offenbar wie bei der Zersetzung abgesondert und nach dem Gesetz der Schwere einen Ausweg vielleicht suchend. Wo sie seitwärts gingen, erklärt sich dies einfach durch einen leichten Druck auf die weiche Masse oder durch das Aufquellen der Masse in der Zersetzung. Dasselbe Gestein zeigt alle Formen der Astsysteme wie das canadische, insbesondere schön die sog. Zahnsubstanz.
+[Fig. 2](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-2.png) zeigt 3 „Stolons“ aus einer halbzersetzten Olivinmasse. Die dunklere Farbe der Kerne bezeichnet den noch unzersetzten Olivin. Von demselben aus gehen diese Ströme einer durchsichtigen Masse, also offenbar wie bei der Zersetzung abgesondert und nach dem Gesetz der Schwere einen Ausweg vielleicht suchend. Wo sie seitwärts gingen, erklärt sich dies einfach durch einen leichten Druck auf die weiche Masse oder durch das Aufquellen der Masse in der Zersetzung. Dasselbe Gestein zeigt alle Formen der Astsysteme wie das canadische, insbesondere schön die sog. Zahnsubstanz.
 
 Man hat also alle hier Eozonal-Bestandtheile des canadischen Gesteins beisammen, aber in einer Zusammenstellung, dass Niemand auf ein organisches Wesen mehr rathen wird.
 
@@ -238,8 +238,8 @@ Ist aber dies Alles in Form und auf sicher unorganischem Wege möglich, so ist a
 
 Zur Erläuterung der Abbildungen füge ich noch bei:
 
-Zu Fig. 1. Die gekörnte Fläche ist Kalk. Die weisse mit breiten Streifen Serpentin, die Bänder im Kalk Chrysotil.
+Zu [Fig. 1.](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-1.png) Die gekörnte Fläche ist Kalk. Die weisse mit breiten Streifen Serpentin, die Bänder im Kalk Chrysotil.
 
-Zu Fig. 2 gilt dasselbe. Die 3 Gänge gehen von der Serpentinkammer durch den Kalk. Die dunklen Stellen im Serpentin sind Olivinkerne.
+Zu [Fig. 2](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-2.png) gilt dasselbe. Die 3 Gänge gehen von der Serpentinkammer durch den Kalk. Die dunklen Stellen im Serpentin sind Olivinkerne.
 
-Fig. 3 und 4 zeigen die Chrysotilbänder von andern Theilen des Dünnschliffs.
+[Fig. 3](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-3.png) [und 4](https://cdn.solaranamnesis.com/OttoHahn/figures/Hahn-Eozoon-Fig-4.png) zeigen die Chrysotilbänder von andern Theilen des Dünnschliffs.
