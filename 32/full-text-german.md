@@ -109,7 +109,7 @@ Ich hielt es für das einfachste bei der Beschreibung des _Eozoon_-Gesteins, wen
 
 Seiner Darstellung des _Eozoon c_. ist nicht mehr viel beigefügt worden. Gümbel wollte noch Warzenansätze gefunden haben. Max Schultze teilt mit, dass nach Glühen des Gesteins die Astsysteme sich schwarz gefärbt haben; er schließt daraus, dass der Inhalt derselben organischer Natur gewesen sei.
 
-Ich könnte nur Bekanntes wiederholen, wenn ich den Stand der Streitfrage hier wiedergeben wollte. Eine eingehende Darstellung der entgegengesetzten Meinungen giebt Zirkel (Dr. Fr. Zirkel, die mikroskopische Beschaffenheit der Mineralien und Gesteine, Leipzig 1873. S. 313.). Was Max Schultze betrifft, so verweise ich auf die Verhandlungen des naturhistorischen Vereins der preußischen Rheinlande und Westphalens. XXX. Jahrgang, S. 164., leider eine unvollendete Arbeit des berühmten Forschers.
+Ich könnte nur Bekanntes wiederholen, wenn ich den Stand der Streitfrage hier wiedergeben wollte. Eine eingehende Darstellung der entgegengesetzten Meinungen gibt Zirkel (Dr. Fr. Zirkel, die mikroskopische Beschaffenheit der Mineralien und Gesteine, Leipzig 1873. S. 313.). Was Max Schultze betrifft, so verweise ich auf die Verhandlungen des naturhistorischen Vereins der preußischen Rheinlande und Westphalens. XXX. Jahrgang, S. 164., leider eine unvollendete Arbeit des berühmten Forschers.
 
 Es bestehen hienach zwei Meinungen. Die eine verteidigt die organische Natur des _Eozoon_, die andere bestreitet sie. Die erstere stützt sich auf analoge Tatsachen im Tierreich, im vorzeitlichen und lebenden. Die letztere glaubt, ebenso Analogien für die Annahme eigentümlicher Gesteinsbildungen anführen zu können. Wenige lassen die Frage offen.
 
