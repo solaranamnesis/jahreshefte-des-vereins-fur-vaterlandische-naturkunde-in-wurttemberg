@@ -32,7 +32,7 @@ Der Wert der Sache ist also, da die Naturkräfte unentgeltliche sind, die Bezeic
 
 Der Tausch der Werte wird durch eine Sache vermittelt, auf welcher die Nahrungsmitteleinheiten bezeichnet werden, welche deren Herstellung erforderte: das Metallgeld. Das Tauschmetall ist also Werth und Werthzeichen zugleich.
 
-Das Mayer'sche Gesetz gibt nun auch das Lohngesetz. Der Arbeiter ninss dasjenige ersetzt erhalten, was er an Nahrungsmitteln auf die Arbeit verwendet hat, einschließlich natürlich der allgemeinen Arbeit, des Antheils an derjenigen Menge von Nahrungsmitteln, welcher seine Erziehung, Ausbildung gekostet hat und desjenigen, was sein Alter kosten wird, in welchem er nicht mehr arbeitsfähig ist.
+Das Mayer'sche Gesetz gibt nun auch das Lohngesetz. Der Arbeiter ninss dasjenige ersetzt erhalten, was er an Nahrungsmitteln auf die Arbeit verwendet hat, einschließlich natürlich der allgemeinen Arbeit, des Anteils an derjenigen Menge von Nahrungsmitteln, welcher seine Erziehung, Ausbildung gekostet hat und desjenigen, was sein Alter kosten wird, in welchem er nicht mehr arbeitsfähig ist.
 
 Aber auch der Begriff des Kapitals und insbesondere der Berechtigung des Kapitals ist durch das Mayer'sche Gesetz gegeben. Die Erfahrung lehrt, dass die Menge Nahrungsmittel, welche wir durch Arbeit gewinnen, grösser ist, als diejenige, welche wir bei der Arbeit verbraucht haben. Dieses Mehr ist das Capital im eigentlichen Sinn, ist das wohlberechtigte Capital.
 
