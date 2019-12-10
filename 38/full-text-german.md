@@ -54,7 +54,7 @@ Während des Falls beobachtete ich weder einen Knall oder Knattern, noch eine de
 
 Die Fallrichtung ging über den Wald her von Osten nach Westen, was ich sogleich, wie nachher noch in dem Echo des Waldes erkennen konnte.
 
-Ausser meiner Familie machte ich keine Mitteilung. Meine Eltern und Brüder sind gestorben.
+Außer meiner Familie machte ich keine Mitteilung. Meine Eltern und Brüder sind gestorben.
 
 Dies die Erzählung des Hergangs Seitens der Herrn Müller, welcher diese Angaben mit seinem Ehrenwort bekräftigt.
 
