@@ -34,7 +34,7 @@ Ich lege Ihnen das Präparat vor. Die Vergrößerung ist 90.
 
 Die Alge kann nicht einmal zu den nieder organisierten gezählt werden.
 
-Ich habe sie _Eophyllum canadense_, das Gestein nun _Eophyllum-Kalk_ genannt.
+Ich habe sie _Eophyllum canadense_, das Gestein nun _Eophyllum_-Kalk genannt.
 
 Wir haben statt des ersten Tieres die erste Pflanze. Wir haben also auch nichts verloren, sondern ich glaube, gewonnen. Die Anfänge des Organischen können nicht Tiere, und zwar verhältnismäßig hoch entwickelte wie Nummuliten, gewesen sein. Die Pflanzenschöpfung — das ist eine logische Forderung — muss der tierischen vorausgegangen sein.
 
