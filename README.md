@@ -49,7 +49,7 @@ English - PDF
 
 ### Volume 38 (1882)
 
-#### 3. Report on Two Gelatinous Meteorite Falls by Dr. Otto Hahn in Reutlingen
+#### 3. Report on Two Gelatin Meteorite Falls by Dr. Otto Hahn in Reutlingen
 
 [German Plain Text](38/full-text-german.md#3-bericht-über-zwei-gallertmeteoritenfälle-von-dr-otto-hahn-in-reutlingen)  
 German - PDF  
