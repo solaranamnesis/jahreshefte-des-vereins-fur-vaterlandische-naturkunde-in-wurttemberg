@@ -1,2 +1,3 @@
-## 3. Report on Two Gelatinous Meteorite Falls by Dr. Otto Hahn in Reutlingen.
+## 3. Report on Two Gelatin Meteorite Falls by Dr. Otto Hahn in Reutlingen.
 
+According to previous observations there are eight falls of gelatin meteorites on record, among them is one from the year 1828 or 1829 (from Allport Derbyshire) whose analysis revealed 32.00% sulfur, 34.09% iron oxide, and 43.59% coal and specific gravity 2. The remaining cases did not get an investigation, however they were witnessed by quite credible people. All are compiled by [Georg Heinrich von] Boguslawski, from which Dr. Otto Ule (_The Wonders of the Star World, 2nd Edition_ with D. Klein, page 360 and the following pages) has described again the most important eight cases mentioned.
