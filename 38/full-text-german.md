@@ -40,6 +40,8 @@ Nun komme ich an die nähere Beschreibung der Kugel. Sie bestand aus rostfarbene
 
 Eine dieser Kugeln war 4 cm groß, die meisten kleiner bis zu 2 cm.* Im Innern der Kugeln bemerkte ich fadenförmige Linien von dunkler, sogar von schwarzer Farbe; die Zwischenräume zwischen den Kugeln (denn diese legten sich nicht unmittelbar an einander) waren von dunkler Masse ausgefüllt und hatten ebenfalls eine Art Struktur, wie ich sie an den Kugeln deutlich beobachtete. Das Ganze hatte ungefähr das Aussehen eines dunkelgelben Froschlaich-Klumpens, mit Fäden durchzogen, wodurch sie sich eben, sowie durch die verschiedene Größe der Kugeln ganz unzweifelhaft von Froschlaich unterschied. Die Oberfläche war schwach durchsichtig, so dass ich die Form der Kugeln als runde und birnförmige Körper erkennen konnte.
 
+*) Diese Tatsache, wie sie auch im zweiten Fall beobachtet wurde, schließt jede Verwechslung mit Froschlaich aus.
+
 Ich wusste nichts mit dem Ding zu tun. Der Klumpen erregte Eckel in mir. Ich ließ ihn liegen. Aber ich hatte keinen andern Glauben, als dass er ein Meteor sei. Ich habe nämlich nichts der Art je auf der Erde, ebenso nichts vor- und nachher auf der Wiese gesehen. Auch meine Geschwister, welche sie sahen, erinnerten sich nie, solche Gebilde dort gesehen zu haben.
 
 Nach einigen Tagen war nichts mehr davon zu sehen.
@@ -49,8 +51,6 @@ Einen Eindruck im Boden hinterließ sie nicht. Ich habe die Kugel nicht umgekehr
 Zum Schlusse bemerke ich, dass ich, weil ich bloß von Meteorsteinen wusste, am Morgen den Platz auf ziemlich weitem Umkreis auch nach einem Stein absuchte, aber keinen, auch kein Loch fand, weshalb ich sicher war, dass nichts anderes als der Klumpen der am Abend vorher gefallene Gegenstand war.
 
 Während des Falls beobachtete ich weder einen Knall oder Knattern, noch eine den Fall begleitende Lichterscheinung, welche sich, wenigstens wenn sie stark gewesen, mir doch von hinten her durch den Wiederschein hätte bemerkbar machen müssen.
-
-*) Diese Tatsache, wie sie auch im zweiten Fall beobachtet wurde, schließt jede Verwechslung mit Froschlaich aus.
 
 Die Fallrichtung ging über den Wald her von Osten nach Westen, was ich sogleich, wie nachher noch in dem Echo des Waldes erkennen konnte.
 
