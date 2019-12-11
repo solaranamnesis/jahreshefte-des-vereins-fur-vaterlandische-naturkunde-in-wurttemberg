@@ -6,5 +6,5 @@
 
 [German Plain Text](full-text-german.md#3-bericht-über-zwei-gallertmeteoritenfälle-von-dr-otto-hahn-in-reutlingen)  
 German - PDF  
-English Plain Text  
+[English Plain Text](full-text-english.md#3-report-on-two-gelatinous-meteorite-falls-by-dr-otto-hahn-in-reutlingen)  
 English - PDF  
