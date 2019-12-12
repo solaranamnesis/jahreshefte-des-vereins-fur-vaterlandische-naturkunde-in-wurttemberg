@@ -12,6 +12,6 @@ In the standard textbooks and guidebooks, however, nothing is found of gelatin m
 
 So, I assume that the observed was faithfully recounted: but if it is true what they tell, then it is out of question and beyond doubt that one is really dealing with cosmic masses. 
 
-It was certainly, however, gelatin masses that were found that no one was able to immediately explain, for which reason one resorted to an explanation from shooting stars. Only they were a description of an entirely different kind, structureless slime masses; they were identified from detailed investigation as telluric substances. Importance cannot be attached to such discovered things in the current state of science.
+It was certainly, however, gelatin masses that were found that no one was able to immediately explain, for which reason one resorted to an explanation from shooting stars. Only they were a description of an entirely different kind, structureless slime masses; they were identified from detailed investigation as telluric substances. Importance cannot be attached to such discovered things in the current state of science. In my reporting of the falls, based on the nature of their form, any thought of terrestrial origin, i.e. frogspawn, _Nostoc_ algae, is from the outset out of question: all accompanying circumstances are stated and the identity of the discovered, or more correctly, the observations of a truly fallen object are without doubt. An explanation in favor of such a mass upon dry grassy ground or a tree, as I am about to now communicate, does not exist.
 
 ...
