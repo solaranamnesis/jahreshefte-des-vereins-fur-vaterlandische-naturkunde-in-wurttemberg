@@ -18,4 +18,6 @@ The two falls most likely took place in the year 1848, and in fact, between the 
 
 The first source of mine, Mr. Müller, a mechanic in Reutlingen told me:
 
+I was born in August 1837. My father was royal Bavarian district geometer in Ottobeuren near Memmingen, formerly accounting auditor of land surveying in Bavaria.
+
 ...
