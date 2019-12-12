@@ -10,6 +10,6 @@ The plausibility of their statements, however, becomes certain simply through th
 
 In the standard textbooks and guidebooks, however, nothing is found of gelatin meteorites. Furthermore, these statements were made in such a way that preparation could hardly be possible.
 
-So, I assume that the observed was faithfully recounted: but if true, what they tell, then it is out of question and beyond doubt that one is really dealing with cosmic masses. 
+So, I assume that the observed was faithfully recounted: but if it is true what they tell, then it is out of question and beyond doubt that one is really dealing with cosmic masses. 
 
 ...
