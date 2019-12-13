@@ -8,7 +8,7 @@ Both falls are reported by persons who cannot be denied their observational abil
 
 The plausibility of their statements, however, becomes certain simply through the content of the message itself. Both informants are not technical experts, they knew only that I was very interested in meteorites. If they had wanted to pull my leg they would, like that deceiving arctic fox grabbing the best nearby storybook, either narrate a description in accordance with what had hitherto been given, or resort to a book, and after this tell of a fire phenomenon, from there of a light phenomenon, cannon shots, small rifle crackling as accompanying the phenomenon. It is, in the highest degree, unlikely that they would have found or extracted a genuine description of this uncommon event.
 
-In the standard textbooks and guidebooks, however, nothing is found of gelatin meteorites. Furthermore, these statements were made in such a way that preparation could hardly be possible.
+In the standard textbooks and guidebooks, however, nothing is found on gelatin meteorites. Furthermore, these statements were made in such a way that preparation could hardly be possible.
 
 So, I assume that the observed was faithfully recounted: but if it is true what they tell, then it is out of question and beyond doubt that one is really dealing with cosmic masses. 
 
