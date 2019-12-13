@@ -20,6 +20,6 @@ The first source of mine, Mr. Müller, a mechanic in Reutlingen told me:
 
 I was born in August 1837. My father was royal Bavarian district geometer in Ottobeuren near Memmingen, formerly accounting auditor of land surveying in Bavaria.
 
-I attended the excellent primary school in Ottobeuren, was always first in my class and still own the first prizes, which I received during my school attendance each year, until the 14th year. In the classes we certainly found out about meteorites and shooting stars. My father, apart from being conversant with the relevant natural processes, told us about them in conversation.
+I attended the excellent primary school in Ottobeuren, was always first in my class and still own the first prizes, which I received during my school attendance each year, until the 14th year. In the classes we certainly learned about meteorites and shooting stars. My father, apart from being conversant with the relevant natural processes, told us about them in conversation.
 
 ...
