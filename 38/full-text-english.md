@@ -26,4 +26,6 @@ I can no longer recall, in the year 1848 or 1849, I believe 1848, after the hay 
 
 I note that the weather had been dry for a long time; the plot of land on which I stood formed a hill, it was a meadow (with many cracks as a consequence of the dryness), the subsoil was a diluvial scree common to the whole area and upon that was an approximately one and a half feet deep layer of sand, which bore a covering of grass plants.
 
+All of a sudden I heard hissing and buzzing across the forest (behind me) and, after listening it for two to three seconds, a fall behind me in the distance about three to four paces away. The sound was directed east, hinting towards the forest. When this action caught my attention, it was like an air-filled ox bladder had burst. Through this I heard the echo of the hissing from the forest.
+
 ...
