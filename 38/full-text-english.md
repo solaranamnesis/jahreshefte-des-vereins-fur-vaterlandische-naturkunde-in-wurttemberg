@@ -24,4 +24,6 @@ I attended the excellent primary school in Ottobeuren, was always first in my cl
 
 I can no longer recall, in the year 1848 or 1849, I believe 1848, after the hay harvest, I was observing a very clear sky one summer evening (when the weather was still dry) and at this point saw a host of shooting stars fall. They fell in all directions. The sky became a web of crisscrossing streaks of light. I saw some individuals move at an angle, as if they had bounced off an object in the atmosphere. In the course of this many bursts of fire sprayed forth. I witnessed this phenomenon from the vicinity of this location and, in order to completely observe it, went to a small mound, a quarter of an hour from the located spot, where to the east I had seen a pine forest in the distance about a quarter of an hour below me. The hill was about as high as the peaks of the pines, I thus stood at an equal height with the pine tops.
 
+I note that the weather had been dry for a long time; the plot of land on which I stood formed a hill, it was a meadow (with many cracks as a consequence of the dryness), the subsoil was a diluvial scree similar to the whole area and upon that an approximately one and a half feet deep layer of sand, which bore a covering of grass plants.
+
 ...
