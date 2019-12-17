@@ -22,4 +22,6 @@ I was born in August 1837. My father was royal Bavarian district geometer in Ott
 
 I attended the excellent primary school in Ottobeuren, was always first in my class and still own the first prizes, which I received during my school attendance each year, until the 14th year. In the classes we certainly learned about meteorites and shooting stars. My father, apart from being conversant with the relevant natural processes, told us about them in conversation.
 
+I can no longer recall, in the year 1848 or 1849, I believe 1848, after the hay harvest, I was observing a very clear sky one summer evening (when the weather was still dry) and at this point saw a host of shooting stars fall. They fell in all directions. They sky became a web of crisscrossing light streaks. I saw some individuals move at an angle, as if they had bounced off an object in the atmosphere. In the course of this many bursts of fire sprayed forth. I witnessed this phenomenon from the vicinity of this location and, in order to completely observe it, I went to a small mound, a quarter of an hour from the located spot, where to the east I had seen a pine forest in the distance about a quarter of an hour below me. The hill was about as high as the peaks of the pines, I thus stood at an equal height with the pine tops.
+
 ...
