@@ -42,7 +42,7 @@ Eine dieser Kugeln war 4 cm groß, die meisten kleiner bis zu 2 cm.* Im Innern d
 
 *) Diese Tatsache, wie sie auch im zweiten Fall beobachtet wurde, schließt jede Verwechslung mit Froschlaich aus.
 
-Ich wusste nichts mit dem Ding zu tun. Der Klumpen erregte Eckel in mir. Ich ließ ihn liegen. Aber ich hatte keinen andern Glauben, als dass er ein Meteor sei. Ich habe nämlich nichts der Art je auf der Erde, ebenso nichts vor- und nachher auf der Wiese gesehen. Auch meine Geschwister, welche sie sahen, erinnerten sich nie, solche Gebilde dort gesehen zu haben.
+Ich wusste nichts mit dem Ding zu tun. Der Klumpen erregte Ekel in mir. Ich ließ ihn liegen. Aber ich hatte keinen andern Glauben, als dass er ein Meteor sei. Ich habe nämlich nichts der Art je auf der Erde, ebenso nichts vor- und nachher auf der Wiese gesehen. Auch meine Geschwister, welche sie sahen, erinnerten sich nie, solche Gebilde dort gesehen zu haben.
 
 Nach einigen Tagen war nichts mehr davon zu sehen.
 
