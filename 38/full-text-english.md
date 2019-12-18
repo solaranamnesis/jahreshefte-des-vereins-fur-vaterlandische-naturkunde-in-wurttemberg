@@ -42,6 +42,6 @@ One of these balls was four centimeters in size, the majority smaller up to two 
 
 *) This fact, as was also observed in the second fall, excludes any confusion with frogspawn.
 
-I didn't know what to do with the thing. The clump arouse disgust in me. I left it laying there. However, I had no change of thought, that is was a meteorite [sic]. I have never, you see, seen anything of this kind on the Earth, nor have I seen anything before or after in the meadow. Even my siblings, who saw it, never remembered seeing such a thing.
+I didn't know what to do with the thing. The clump arouse disgust in me. I left it laying there. However, I had no change of thought, that it was a meteorite [sic]. I have never, you see, seen anything of this kind on the Earth, nor have I seen anything before or after in the meadow. Even my siblings, who saw it, never remembered seeing such a thing.
 
 ...
