@@ -40,6 +40,8 @@ I now come to the detailed description of the ball. It consisted of rust-colored
 
 One of these balls was four centimeters in size, the majority smaller up to two centimeters.* In the interior of the balls I noticed filamentous lines of dark, even black, color; the interstices between the balls (because they did not lie directly on each other) were filled with a dark mass and likewise had a kind of structure, such as I distinctly observed on the balls. The whole thing had roughly the appearance of a dark yellow frogspawn clump, pervaded with filaments, and just by this, plus the various sizes of the balls, made it entirely and undoubtedly different from frogspawn. The surface was slightly transparent, so that I could recognize the form of the balls as round and pear-shaped bodies.
 
+*) This fact, as was also observed in the second fall, excludes any confusion with frogspawn.
+
 I didn't know what to do with the thing. The clump arouse disgust in me. I left it laying there. However, I had no change of thought, that is was a meteorite [sic]. I have never, you see, seen anything of this kind on the Earth, nor have I seen anything before or after in the meadow. Even my siblings, who saw it, never remembered seeing such a thing.
 
 ...
