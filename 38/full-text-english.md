@@ -28,4 +28,6 @@ I note that the weather had been dry for a long time; the plot of land on which 
 
 All of a sudden I heard hissing and buzzing across the forest (behind me) and, after listening it for two to three seconds, a fall behind me in the distance about three to four paces away. The sound was directed east, hinting towards the forest. When this action caught my attention, it was like an air-filled ox bladder had burst. Through this I heard the echo of the hissing from the forest.
 
+I quickly turned and searched for the apparently fallen object. But since I was unable to immediately distinguish any such thing due to the darkness, I marked the spot where the fall should have occured with my stick, so that I could visit it the next day. The plot of land was our property; I would have also easily found it again without this marking because it was at the corner of the boundary that it made with the adjacent property, so it was already sufficiently marked for me.
+
 ...
