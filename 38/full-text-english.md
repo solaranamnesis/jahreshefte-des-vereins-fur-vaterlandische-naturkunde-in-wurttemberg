@@ -30,10 +30,12 @@ All of a sudden I heard hissing and buzzing across the forest (behind me) and, a
 
 I quickly turned and searched for the apparently fallen object. But since I was unable to immediately distinguish any such thing due to the darkness, I marked the spot where the fall should have occured with my stick, so that I could visit it the next day. The plot of land was our property; I would have also easily found it again without this marking because it was at the corner of the boundary that it made with the adjacent property, hence it was already sufficiently marked for me.
 
-Bright and early the next day I went to the place and actually found, only one meter from the spot marked by the stick, a gelatin-like ball, likewise consisting of rust colored balls. It was located on thin grass; a surface had flattened out beneath it.
+Bright and early the next day I went to the place and actually found, only one meter from the spot marked by the stick, a gelatin-like ball, likewise consisting of rust-colored balls. It was located on thin grass; a surface had flattened out beneath it.
 
 The diameter of the ball was 30 cm.
 
 I kicked the ball with my foot, it began a trembling motion which continued for a long time until the mass returned to its resting point with ever weakening vibrations. Now I touched it, it was sticky, but nothing of the substance stuck to the fingers, nor did its form change from the kick of the foot or the touch of the fingers.
+
+I now come to the detailed description of the ball. It consisted of rust-colored round bodies, which lay against each other, free of any noticable sharp boundary lines.
 
 ...
