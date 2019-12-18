@@ -32,10 +32,12 @@ I quickly turned and searched for the apparently fallen object. But since I was 
 
 Bright and early the next day I went to the place and actually found, only one meter from the spot marked by the stick, a gelatin-like ball, likewise consisting of rust-colored balls. It was located on thin grass; a surface had flattened out beneath it.
 
-The diameter of the ball was 30 cm.
+The diameter of the ball was thirty centimeters.
 
 I kicked the ball with my foot, it began a trembling motion which continued for a long time until the mass returned to its resting point with ever weakening vibrations. Now I touched it, it was sticky, but nothing of the substance stuck to the fingers, nor did its form change from the kick of the foot or the touch of the fingers.
 
 I now come to the detailed description of the ball. It consisted of rust-colored round bodies, which lay against each other, free of any noticable sharp boundary lines.
+
+One of these balls was four centimeters in size, the majority smaller up to two centimeters.* In the interior of the balls I noticed filamentous lines of dark, even black, color; the interstices between the balls (because they did not lie directly on each other) were filled with a dark mass and likewise had a kind of structure, such as I distinctly observed on the balls. The whole thing had roughly the appearance of a dark yellow frogspawn clump, pervaded with filaments, and just by this, plus the various sizes of the balls, makes it entirely and undoubtedly different from frogspawn. The surface was slightly transparent, so that I could recognize the form of the balls as round and pear-shaped bodies.
 
 ...
