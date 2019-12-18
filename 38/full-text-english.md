@@ -46,6 +46,6 @@ I didn't know what to do with the thing. The clump arouse disgust in me. I left 
 
 After a few days, nothing more of it was visible.
 
-It left no effect on the ground. I did not turn around the ball, so it remained laying on the ground while it must have dried up little by little.
+It left no effect on the ground. I did not turn the ball around, so it remained laying on the ground while it must have dried up little by little.
 
 ...
