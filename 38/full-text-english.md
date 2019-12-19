@@ -58,6 +58,6 @@ Except for my family, I made no disclosure. My parents and brothers have passed 
 
 This is the narrative of the course of events by Mr. Müller, who confirms these statements with his word of honor.
 
-Probably on the same night, a camaraderie of country youths in Neuhausen, Urach County went 
+Probably on the same night, a camaraderie of country youths in Neuhausen, Urach County, went with a pail of wine to a nearby tree to imbibe. Among them was Gottfried Seiz, my informant, now a merchant in Linsenhofen, Nürtingen County, who was at the time twenty years old. —
 
 ...
