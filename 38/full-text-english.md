@@ -52,4 +52,10 @@ In conclusion I note that, because I knew of meteorites, in the morning I also s
 
 During the fall I observed neither a bang or rattle, nor an appearance of light accompanying the fall, which, at least if it was strong, should have been noticeable by me from behind through a reflection.
 
+The direction of the fall was over the forest from east to west, which I immediately realized, just as later on, in the echo of the forest.
+
+Except for my family, I made no disclosure. My parents and brothers have passed away.
+
+This is the narrative of the course of events by Mr. Müller, who confirms these statements with his word of honor.
+
 ...
