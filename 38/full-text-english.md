@@ -50,4 +50,6 @@ It left no effect on the ground. I did not turn the ball over, so it remained la
 
 In conclusion I note that, because I knew of meteorites, in the morning I also searched the place for a stone within a fairly extensive perimeter, but nothing, not even a hole was found, for which reason I was certain that nothing besides the clump had fallen the evening before.
 
+During the fall I observed neither a bang or rattle, nor an appearance of light accompanying the fall, which, at least if it was strong, should have been noticeable by me from behind through a reflection.
+
 ...
