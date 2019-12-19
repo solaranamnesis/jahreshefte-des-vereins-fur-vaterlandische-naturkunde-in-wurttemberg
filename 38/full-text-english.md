@@ -58,4 +58,6 @@ Except for my family, I made no disclosure. My parents and brothers have passed 
 
 This is the narrative of the course of events by Mr. Müller, who confirms these statements with his word of honor.
 
+Probably on the same night, a camaraderie of country youths in Neuhausen, Urach County went 
+
 ...
