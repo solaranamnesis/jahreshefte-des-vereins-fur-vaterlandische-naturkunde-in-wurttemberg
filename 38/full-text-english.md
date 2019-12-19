@@ -58,6 +58,6 @@ Except for my family, I made no disclosure. My parents and brothers have passed 
 
 This is the narrative of the course of events by Mr. Müller, who confirms these statements with his word of honor.
 
-Probably on the same night, a camaraderie of country youths in Neuhausen, Urach County, went with a pail of wine to a nearby tree to imbibe. Among them was Gottfried Seiz, my informant, now a merchant in Linsenhofen, Nürtingen County, who was at the time twenty years old. —
+Probably on the same night, a camaraderie of country boys in Neuhausen, Urach County, went with a pail of wine to a nearby tree to imbibe. Among them was Gottfried Seiz, my informant, now a merchant in Linsenhofen, Nürtingen County, who was at the time twenty years old. — I note that unmarried country boys were forbidden from the tavern and therefore were considered harmless in this manner. One among the others had to maintain the evening wine supply. G. Seiz insists that everyone's share was not too great, and that it always went off without drunks and everyone that evening was sober.
 
 ...
