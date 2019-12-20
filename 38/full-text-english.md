@@ -64,4 +64,6 @@ With darkness already materializing, the camaraderie sat under a large pear tree
 
 One ball had the size of a hazelnut, the others were smaller, down to the size of a pinhead. The balls themselves were streaked with lines or filaments, which Seiz observed quite closely. The mass was not preserved and was therefore lost.
 
+From these accounts a full agreement with the falls reported by Boguslawski can be inferred, as well as both falls reported by me which coincide (apart from the color and the light phenomenon, which, however, if it was faint would elude the observer, all the more easier to miss since many falls were certainly radiating light).
+
 ...
