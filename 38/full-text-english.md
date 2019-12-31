@@ -70,4 +70,4 @@ I would like to include with this communication a request for further research o
 
 Perhaps even our members will be successful by way of making inquiries into additional falls. I would be very obliged for such information.
 
-...
+Naturally, those where the falling of masses themselves cannot be ascertained need to be excluded. This much is certain: science is challenged to pursue these beginnings and, with the next best opportunity, to bring this highly important matter into judgement through precise assessment of the facts and analysis of the object.
