@@ -66,6 +66,8 @@ One ball had the size of a hazelnut, the others were smaller, down to the size o
 
 From these accounts a full agreement with the falls reported by Boguslawski can be inferred, as well as both falls reported by me which coincide (apart from the color and the light phenomenon, which, however, if it was faint would elude the observer, all the more easier to miss since many falls were certainly radiating light).
 
-I would like to include with this communication requests for further research on these clues and for ensuring the most careful preservation of the masses in the falls that are found. All reports suggest that they rapidly wither or evaporate quite quickly. Thus, if the mass is to remain preserved a hermetically sealed provision should be made to prevent this.
+I would like to include with this communication a request for further research on these clues and for ensuring the most careful preservation of the masses in the falls that are found. All reports suggest that they rapidly wither or evaporate quite quickly. Thus, if the mass is to remain preserved, a hermetically sealed provision should be made to prevent this.
+
+Perhaps even our members will be successful by way of making inquiries into additional falls. I would be very obliged for such information.
 
 ...
