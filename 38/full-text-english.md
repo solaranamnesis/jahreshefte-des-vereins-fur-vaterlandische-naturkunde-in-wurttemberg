@@ -26,7 +26,7 @@ I can no longer recall, in the year 1848 or 1849, I believe 1848, after the hay 
 
 I note that the weather had been dry for a long time; the plot of land on which I stood formed a hill, it was a meadow (with many cracks as a consequence of the dryness), the subsoil was a diluvial scree common to the whole area and upon that was an approximately one and a half feet deep layer of sand, which bore a covering of grass plants.
 
-All of a sudden I heard hissing and whizzing across the forest (behind me) and, after listening it for two to three seconds, a fall behind me in the distance about three to four paces away. The sound was directed east, hinting towards the forest. When this action caught my attention, it was like an air-filled ox bladder had burst. Through this I heard the echo of the hissing from the forest.
+All of a sudden I heard hissing and whizzing across the forest (behind me) and, after listening to it for two to three seconds, a fall behind me in the distance about three to four paces away. The sound was directed east, hinting towards the forest. When this action caught my attention, it was like an air-filled ox bladder had burst. Through this I heard the echo of the hissing from the forest.
 
 I quickly turned and searched for the apparently fallen object. But since I was unable to immediately distinguish any such thing due to the darkness, I marked the spot where the fall should have occured with my stick, so that I could visit it the next day. The plot of land was our property; I would have also easily found it again without this marking because it was at the corner of the boundary that it made with the adjacent property, hence it was already sufficiently marked for me.
 
